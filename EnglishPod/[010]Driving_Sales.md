@@ -1,0 +1,316 @@
+# Episode 010
+
+## Driving Sales
+
+---
+
+**Marco:** Welcome back English learners! My name is Marco and I'm joined by… 
+
+**Erica:** Erica. 
+
+**Marco:** How are you Erica? 
+
+**Erica:** I'm doing great, Marco, and you? 
+
+**Marco:** Excellent, I'm doing really well and I'm really excited about our lesson for today. 
+
+**Erica:** That's right, we"ve got an intermediate lesson today and we're gonna study some real English. 
+
+**Marco:** English that you use everyday, right? 
+
+**Erica:** That's right, English that native speakers really use. 
+
+**Marco:** Exactly, and today as Erica mentioned we have an intermediate lesson and not only is an intermediate, but it's a business lesson. 
+
+**Erica:** Yeah, so, today we're listening in to a sales meeting and we're going to learn some great useful English to talk about sales strategies. So, we're gonna learn English for sales strategies, for making suggestions and for responding to suggestions. 
+
+**Marco:** Great, so, why don't we take a look at our "vocabulary preview" for today? 
+
+**Vocabulary Preview** 
+
+**Erica:** So, our "vocabulary preview" is a part of our lesson when we teach you some really important words that will help you to understand the dialogue better. 
+
+**Marco:** Okay, great, so, that is what vocabulary preview is. We have two words for you today and we can start off by looking at the first one. 
+
+**Erica:** Our first word today is drive sales. 
+
+**Marco:** Drive sales. 
+
+**Erica:** Drive sales. 
+
+**Marco:** To drive sales, and that means… 
+
+**Erica:** To increase sales. 
+
+**Marco:** Right, to sell more. 
+
+**Erica:** Exactly, so, to drive sales. 
+
+**Marco:** Okay, so, now let's look at our second word and it's an interesting one, it's promotion. 
+
+**Erica:** Promotion. 
+
+**Marco:** Promotion. 
+
+**Erica:** Promotion. 
+
+**Marco:** So, Erica, what is a promotion exactly? 
+
+**Erica:** Okay, so here, we're not really talking about getting a better job, right? 
+
+**Marco:** Okay, uh, not like a job promotion. 
+
+**Erica:** No, we're talking about a marketing strategy. 
+
+**Marco:** Okay, so, I can give you an example. Suppose that I wanna buy shampoo. 
+
+**Erica:** Aha. 
+
+**Marco:** And, if I go to the supermarket and I see "Buy one and get one free"… 
+
+**Erica:** So, that's a two-for-one. 
+
+**Marco:** That's a two-for-one promotion, yeah? 
+
+**Erica:** Yeah, okay. 
+
+**Marco:** That's a sales promotion. Or… 
+
+**Erica:** Perhaps the shampoo in the supermarket is less expensive than usual. 
+
+**Marco:** Okay, so… 
+
+**Erica:** Maybe… yeah, usually, maybe it costs five dollars, but today it costs four dollars, that's a sales promotion. 
+
+**Marco:** Great, so, that's a really good marketing strategy. 
+
+**Erica:** Exactly, and we'll hear this word in our dialogue today. 
+
+**Marco:** Great, so, we are ready to listen to tour dialogue. It's gonna be pretty fast, so it might be a little bit difficult to understand. 
+
+**Erica:** But don't worry if you don't understand everything, because later in this lesson we're gonna explain all the important words and phrases. 
+
+**DIALOGUE FIRST TIME** 
+
+**Marco:** Okay, so, an interesting manager, right? 
+
+**Erica:** I don't know about interesting, maybe I would think bad manager. 
+
+**Marco:** Hehe. We're gonna talk about him later on in the show, but now let's take a look at our "language takeaway". 
+
+**Language Takeaway** 
+
+**Erica:** Okay, so, "language takeaway" is the part of our lesson where we tech you the most important words from the dialogue. All these words that we are going to focus on can be found in today's dialogue. 
+
+**Marco:** Exactly, so, we have three words for you today, let's look at the first one – match the competitors. 
+
+**Erica:** Match the competitors. 
+
+**Marco:** Match the competitors. 
+
+**Erica:** Match the competitors. 
+
+**Marco:** Great, so, we have some examples for you, so you can listen and try and see if you can figure out what match the competitors really means. 
+
+**Example One** 
+
+> A: We guarantee that we can match the competitors' lowest price. 
+
+**Example Two** 
+
+> B: It's impossible for us to match the competitors. Our costs are just too high. 
+
+**Example Three** 
+
+> C: Do you think we can match our competitors' prices and still keep our quality high? 
+
+**Erica:** Uh, okay, so, I see that match the competitors means to be as good as or better than other companies in the same industry. 
+
+**Marco:** Exactly, match the competitors. 
+
+**Erica:** Alright, so, let's move to our second word today for language takeaways and it is in the market. 
+
+**Marco:** In the market. 
+
+**Erica:** In the market. 
+
+**Marco:** In the market. 
+
+**Erica:** We heard this phrase in the dialogue and it means in the industry. 
+
+**Marco:** Exactly, I can say, for example, "EnglishPod is the best language pod in the market". 
+
+**Erica:** So, of all the podcasts that teach English EnglishPod is the best. 
+
+**Marco:** Of course. 
+
+**Erica:** Yeah. 
+
+**Marco:** No doubt about it. 
+
+**Erica:** I totally agree. 
+
+**Marco:** Right, or I can give you anther example "iPods are the most popular mp3-players in the market". 
+
+**Erica:** So, of all the mp3 players in the world iPods are the most popular. So, let's move to our final word for today and it is… 
+
+**Marco:** It'll never fly. 
+
+**Erica:** It'll never fly. 
+
+**Marco:** It'll never fly. 
+
+**Erica:** It will never fly. 
+
+**Marco:** So, this phrase sounds a little bit strange. 
+
+**Erica:** I know, fly? Are we talking about an airplane here? What's going on? 
+
+**Marco:** Hehe. Exactly, but we're not, so… so, we're gonna give you some examples and try and guess what it'll never fly really means. 
+
+**Example One** 
+
+> A: This marketing plan will never fly. It's just too expensive. 
+
+**Example Two** 
+
+> B: What? You want to sell bikinis in Alaska? That'll never fly. 
+
+**Example Three** 
+
+> C: Brad told me his idea for film script, but the story will never fly. It's not interesting enough. 
+
+**Erica:** So, it means it won't work. 
+
+**Marco:** It won't work, it's not a good idea. 
+
+**Erica:** They'll never agree. 
+
+**Marco:** Exactly. Great, so, now we"ve seen a lot of useful phrases and we are ready to listen to our dialogue a second tine, but this time it's gonna be slow. 
+
+**Erica:** So, you'll be able to understand a little bit better and you'll be able to hear the ph… words and phrases we were just talking about. 
+
+**DIALOGUE SECOND TIME** (slow) 
+
+**Marco:** Okay, great, I hope everyone understands a lot better now. 
+
+**Erica:** And I hope everyone could listen out for some of those key words. 
+
+**Marco:** Right, so, now it's time for us to take a look at "fluency builder". 
+
+**Fluency Builder** 
+
+**Erica:** So, with "fluency builder" we try to help you increase your fluency. We take a ph… word or phrase that you already know and show you how to say it a little bit more naturally, a little bit more like a native English speaker. 
+
+**Marco:** Right, and we have three of these words for you today. 
+
+**Erica:** Yeah. 
+
+**Marco:** Let's start with the first one. Okay, so, often students will say something like… 
+
+**Erica:** "I'll be here soon". 
+
+**Marco:** Or… 
+
+**Erica:** "I will arrive soon". 
+
+**Marco:** Right, and these sentences are correct. 
+
+**Erica:** They're totally fine, but I think there's a better way to say this. 
+
+**Marco:** Right, and we heard it in the dialogue, so, let's listen to what the person in the dialogue said. 
+
+> Phrase 1: The CEO will be here any minute. The CEO will be here any minute. 
+
+**Marco:** Okay, so, be here any minute, he'll be here any minute. It just sounds a little bit more natural. 
+
+**Erica:** Yeah, I think I use this phrase quite often, he'll be here any minute. 
+
+**Marco:** He'll be here soon. 
+
+**Erica:** Yeah. 
+
+**Marco:** Great. Okay, so, let's move on to our second phrase for fluency builder. 
+
+**Erica:** So, this phrase will help you to learn how to say "I'm thinking about something" in a better sounding way. 
+
+**Marco:** Right, so, you can say something like "We are thinking about a sales strategy". 
+
+**Erica:** Or "That sounds like something we should think about". 
+
+**Marco:** Right, and it's perfectly correct. 
+
+**Erica:** Yeah, there's no problem with this. 
+
+**Marco:** But in the dialogue we heard something a little bit different, so, let's listen to it. 
+
+> Phrase 2: It sounds like something we should consider. It sounds like something we should consider. 
+
+**Marco:** So, consider sounds like a pretty natural way of saying it, right? 
+
+**Erica:** Yeah, and you know what, I think it sounds really kind of smart. 
+
+**Marco:** Yeah, it sounds more formal even, at times. 
+
+**Erica:** A little more professional. 
+
+**Marco:** Yeah. 
+
+**Erica:** Yeah. 
+
+**Marco:** It's a good word. 
+
+**Erica:** Yeah. 
+
+**Marco:** Okay, brilliant! So, let's move on to our third word. 
+
+**Erica:** Marco you already said our third word. 
+
+**Marco:** Hehe. Oh, yeah, I actually did. Brilliant, um, that's a great word right there. 
+
+**Erica:** Yeah. A lot of people might say "That's a great idea!" or "Great!", but in the dialogue we heard another way of saying this same idea. 
+
+> Phrase 2: That's a brilliant idea. That's a brilliant idea. 
+
+**Marco:** Okay, so, this is great, but I would have to say that it's a little bit more British English. 
+
+**Erica:** Yeah, I"d agree with you there, but I also think it sort of gives more power to this idea that it's a good idea. Brilliant idea! 
+
+**Marco:** That it's a really, really good idea. 
+
+**Erica:** Yeah, yeah. 
+
+**Marco:** And I like that word. 
+
+**Erica:** Yeah. 
+
+**Marco:** Okay, so, we're ready to listen to our dialogue again, a third time, but at its normal speed. 
+
+**DIALOGUE THIRD TIME** 
+
+**Marco:** Alright, so, listening to this dialogue makes you think about this boss. I'm pretty sure everyone has had a manger or a… supervisor that's similar to this guy. 
+
+**Erica:** Yeah, this boss - a clerk. I would have to say he sounds like a terrible person to work for. 
+
+**Marco:** Hehe. Yeah, that's true. If you're a manager, you want to motivate your employees. 
+
+**Erica:** I think it's the most important thing a manger does is to encourage his or her employees and to help support them to grow and to be better people in the job and this guys is totally not doing this. 
+
+**Marco:** And you can tell, because they are a little bit scared of talking and he cuts them off with saying "Oh, it's a bad idea, give me a better idea" and stuff like that. 
+
+**Erica:** Yeah, I could never work for guy like this. 
+
+**Marco:** Hehe. 
+
+**Erica:** You know, my first boss that I had when I first entered the workforce, um, I was in a very junior position and I was working for a large company and the General Manger of the company, he was amazing, he was so encouraging. He knew every single employee's name, first name, and he would, you know, make an effort to stop and say "Hello" and ask them how things were going. And, you know what, this left me with such a good feeling about the company that I really wants to work hard for this company and try my best. And I think that I"ve never… met such a great boss as this guy. 
+
+**Marco:** No, I think that's true. Definitely, if you have a boss that's encouraging and motivating like that, it makes you work harder and makes you feel part of a really special team and that's something we can all agree on and I'm sure all our managers out there do the same. Well, you know what, I hope some of our listeners log on to our website and maybe they can tell us some experiences with bad managers or good managers or if they are managers, how they handle things. 
+
+**Erica:** Yeah, and hopefully they can use some of these great phrases that we talked about today. 
+
+**Marco:** Great, so, be sure everyone to visit our website at englishpod.com and… where you can find a lot of other information and really good resources to continue improving your English. 
+
+**Erica:** That's right, so, thanks for listening today everyone, and until next time, this is… Good bye! 
+
+**Marco:** Bye! 
+
