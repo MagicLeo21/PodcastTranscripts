@@ -24,6 +24,30 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Hurry up, get in.
+
+> B: I'm in, let's go!
+
+> A: OK, make a left here. . . no wait, I meant make a right. Come on, speed up!
+
+> B: Geez! What's the rush?
+
+> A: Don't worry about it, just drive. Oh, no, the light is about to change. . . step on it!
+
+> B: Are you nuts! I'm not going to run a red light!
+
+> A: Whatever. Just turn right here. . . .The freeway will be packed at this hour. . . .let's take a side street. Go on! Get out of our way! Move, move!
+
+> B: What's your problem! Geez. Having a fit is not going to help!
+
+> A: Here, I know a short cut….just go down here, and we'll cut though Ashburn Heights. Let's go, let's go! Watch out for that lady!
+
+> B: I'm going as fast as I can!
+
+> A: Yes! We made it. 5:58, just before the library closes.
+
+> B: You're such a geek!
+
 **Marco:** So, they were in a hurry and it was all just to get to the library. 
 
 **Erica:** Well, maybe he was late returning a book or something. 
@@ -160,6 +184,30 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Hurry up, get in.
+
+> B: I'm in, let's go!
+
+> A: OK, make a left here. . . no wait, I meant make a right. Come on, speed up!
+
+> B: Geez! What's the rush?
+
+> A: Don't worry about it, just drive. Oh, no, the light is about to change. . . step on it!
+
+> B: Are you nuts! I'm not going to run a red light!
+
+> A: Whatever. Just turn right here. . . .The freeway will be packed at this hour. . . .let's take a side street. Go on! Get out of our way! Move, move!
+
+> B: What's your problem! Geez. Having a fit is not going to help!
+
+> A: Here, I know a short cut….just go down here, and we'll cut though Ashburn Heights. Let's go, let's go! Watch out for that lady!
+
+> B: I'm going as fast as I can!
+
+> A: Yes! We made it. 5:58, just before the library closes.
+
+> B: You're such a geek!
+
 **Erica:** Okay, well, I think that was a lot more clear this time. You know, there's some great language in that dialogue and I would like to look at how we can "put it together". 
 
 **Putting It Together** 
@@ -247,6 +295,30 @@
 **Marco:** Okay, so now, let's take a listen to this dialogue a third time at its normal speed and now you can understand everything that's in this dialogue. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Hurry up, get in.
+
+> B: I'm in, let's go!
+
+> A: OK, make a left here. . . no wait, I meant make a right. Come on, speed up!
+
+> B: Geez! What's the rush?
+
+> A: Don't worry about it, just drive. Oh, no, the light is about to change. . . step on it!
+
+> B: Are you nuts! I'm not going to run a red light!
+
+> A: Whatever. Just turn right here. . . .The freeway will be packed at this hour. . . .let's take a side street. Go on! Get out of our way! Move, move!
+
+> B: What's your problem! Geez. Having a fit is not going to help!
+
+> A: Here, I know a short cut….just go down here, and we'll cut though Ashburn Heights. Let's go, let's go! Watch out for that lady!
+
+> B: I'm going as fast as I can!
+
+> A: Yes! We made it. 5:58, just before the library closes.
+
+> B: You're such a geek!
 
 **Erica:** Well, this dialogue is all about driving, right? 
 

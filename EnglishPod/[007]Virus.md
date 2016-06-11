@@ -70,6 +70,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Oh great! This stupid computer froze again! That's the third time today! Hey Samuel, can you come take a look at my PC? Its acting up again. It must have a virus or something.
+
+> B: Just give me a second; Ill be right up.
+
+> B: I ran a virus scan on your computer, and it turns out that you have a lot of infected files!
+
+> A: But I'm quite careful when I'm browsing the internet, I have no idea how I could have picked up a virus.
+
+> B: Well, you have to make sure that your anti-virus software is updated regularly; yours wasn't up to date, that's probably what was causing your problems.
+
+> A: Ok. Anything else?
+
+> B: Yeah, try not to kick or hit the computer!
+
+> A: Um yeah… Sorry about that.
+
 **Marco:** Well, I completely understand this guy. When my computer freezes I kick it and punch it and do everything to it. 
 
 **Erica:** Well, I hope you don't punch it too hard, Marco. 
@@ -192,6 +208,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Oh great! This stupid computer froze again! That's the third time today! Hey Samuel, can you come take a look at my PC? Its acting up again. It must have a virus or something.
+
+> B: Just give me a second; Ill be right up.
+
+> B: I ran a virus scan on your computer, and it turns out that you have a lot of infected files!
+
+> A: But I'm quite careful when I'm browsing the internet, I have no idea how I could have picked up a virus.
+
+> B: Well, you have to make sure that your anti-virus software is updated regularly; yours wasn't up to date, that's probably what was causing your problems.
+
+> A: Ok. Anything else?
+
+> B: Yeah, try not to kick or hit the computer!
+
+> A: Um yeah… Sorry about that.
+
 **Erica:** Okay, that was a lot more clear this time. 
 
 **Marco:** Definitely, yeah, I understood a lot more. Okay, so, now it's time to look at "fluency builder". Erica, why don't you explain what fluency builder is? 
@@ -225,6 +257,22 @@
 **Erica:** It'll be at the normal speed. Try and see if you can hear these keywords. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Oh great! This stupid computer froze again! That's the third time today! Hey Samuel, can you come take a look at my PC? Its acting up again. It must have a virus or something.
+
+> B: Just give me a second; Ill be right up.
+
+> B: I ran a virus scan on your computer, and it turns out that you have a lot of infected files!
+
+> A: But I'm quite careful when I'm browsing the internet, I have no idea how I could have picked up a virus.
+
+> B: Well, you have to make sure that your anti-virus software is updated regularly; yours wasn't up to date, that's probably what was causing your problems.
+
+> A: Ok. Anything else?
+
+> B: Yeah, try not to kick or hit the computer!
+
+> A: Um yeah… Sorry about that.
 
 **Erica:** So, Marco, I really think that my computer actually has a virus now. 
 

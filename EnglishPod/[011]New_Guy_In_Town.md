@@ -112,6 +112,29 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Oh, I don't know if you heard, but someone moved into that old house down the road.
+
+> B: Yeah, I know. I met the owner of the house yesterday as he was moving in. His name is Armand.
+
+> A: Really? What's he like? You have to fill me in.
+
+> B: Actually, he's a bit strange. I don't know… I've got a bad feeling about him.
+
+> A: Really? Why?
+
+> B: Well, yesterday I brought over a housewarming gift, but Armand started acting really weird, and then he practically kicked me out! I tried to, sort of, peek into his house, but everything was so dark inside that I couldn't really get a good look.
+
+> A: Well, you'll never guess what I saw this morning.
+A delivery truck pulled into his driveway, and it dropped off a long, rectangular box. It almost looked like a coffin!
+
+> B: You see! Why would he…
+
+> C: Hello ladies…
+
+> B: Ah, Armand! You scared the heck out of me! This is my friend Doris.
+
+> C: A pleasure to meet you…If you are not doing anything tonight, I would like to have you both for dinner. I mean…I would like to have you both over for dinner.
+
 **Erica:** Ooh, that guy seems kind of weird. 
 
 **Marco:** Hehe. You can hear his voice is like a weird guy, right? 
@@ -250,6 +273,29 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Oh, I don't know if you heard, but someone moved into that old house down the road.
+
+> B: Yeah, I know. I met the owner of the house yesterday as he was moving in. His name is Armand.
+
+> A: Really? What's he like? You have to fill me in.
+
+> B: Actually, he's a bit strange. I don't know… I've got a bad feeling about him.
+
+> A: Really? Why?
+
+> B: Well, yesterday I brought over a housewarming gift, but Armand started acting really weird, and then he practically kicked me out! I tried to, sort of, peek into his house, but everything was so dark inside that I couldn't really get a good look.
+
+> A: Well, you'll never guess what I saw this morning.
+A delivery truck pulled into his driveway, and it dropped off a long, rectangular box. It almost looked like a coffin!
+
+> B: You see! Why would he…
+
+> C: Hello ladies…
+
+> B: Ah, Armand! You scared the heck out of me! This is my friend Doris.
+
+> C: A pleasure to meet you…If you are not doing anything tonight, I would like to have you both for dinner. I mean…I would like to have you both over for dinner.
+
 **Erica:** You know, one of the things I really like about this dialogue is there's a lot of great phrases that will help you to gossip. 
 
 **Marco:** That's a good observation, so, I think it's time for "fluency builder". 
@@ -309,6 +355,29 @@
 **Erica:** Alright, so, enough of our gossip. I think it's time for us to listen to the dialogue one last time. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Oh, I don't know if you heard, but someone moved into that old house down the road.
+
+> B: Yeah, I know. I met the owner of the house yesterday as he was moving in. His name is Armand.
+
+> A: Really? What's he like? You have to fill me in.
+
+> B: Actually, he's a bit strange. I don't know… I've got a bad feeling about him.
+
+> A: Really? Why?
+
+> B: Well, yesterday I brought over a housewarming gift, but Armand started acting really weird, and then he practically kicked me out! I tried to, sort of, peek into his house, but everything was so dark inside that I couldn't really get a good look.
+
+> A: Well, you'll never guess what I saw this morning.
+A delivery truck pulled into his driveway, and it dropped off a long, rectangular box. It almost looked like a coffin!
+
+> B: You see! Why would he…
+
+> C: Hello ladies…
+
+> B: Ah, Armand! You scared the heck out of me! This is my friend Doris.
+
+> C: A pleasure to meet you…If you are not doing anything tonight, I would like to have you both for dinner. I mean…I would like to have you both over for dinner.
 
 **Erica:** Okay, Marco, I have a true story for you. 
 

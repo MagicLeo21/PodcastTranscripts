@@ -100,6 +100,28 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Hello, I'm here to see Mr. Corleone.
+
+> B: Right this way, sir.
+
+> C: Charlie! What can I do for you?
+
+> B: Mr. Corlone, I'm really sorry to trouble you, but I need your help.
+
+> C: Anything for you, Charlie! Your father was like a brother to me.
+
+> B: Well, sir, you see, this recession has hit me pretty hard; I lost my job and I'm in a lot of debt.
+
+> C: I see. . . . . .
+
+> B: Yeah, you know, I've got credit card bills, car payments, I've got to pay my mortgage; and on top of all that, I have to pay my son's college tuition.
+
+> C: So you're asking for a loan.
+
+> B: Well, I just thought maybe you could help me out.
+
+> C: What? At a time like this? I'm broke too, you know! You're not the only one who has been hit by the recession! I lost half my money in the stock market crash! Go on! Get outa here!
+
 **Marco:** Okay, so, that was a bit unexpected. 
 
 **Erica:** Yeah, that was certainly strange. He didn't go to the bank to ask for money, did he? 
@@ -210,6 +232,28 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Hello, I'm here to see Mr. Corleone.
+
+> B: Right this way, sir.
+
+> C: Charlie! What can I do for you?
+
+> B: Mr. Corlone, I'm really sorry to trouble you, but I need your help.
+
+> C: Anything for you, Charlie! Your father was like a brother to me.
+
+> B: Well, sir, you see, this recession has hit me pretty hard; I lost my job and I'm in a lot of debt.
+
+> C: I see. . . . . .
+
+> B: Yeah, you know, I've got credit card bills, car payments, I've got to pay my mortgage; and on top of all that, I have to pay my son's college tuition.
+
+> C: So you're asking for a loan.
+
+> B: Well, I just thought maybe you could help me out.
+
+> C: What? At a time like this? I'm broke too, you know! You're not the only one who has been hit by the recession! I lost half my money in the stock market crash! Go on! Get outa here!
+
 **Erica:** Okay, so, I think a lot of the key language we just talked about is a lot more clear now, but you know, I also noticed some really interesting phrases in this dialogue. 
 
 **Marco:** Yes, I did too, so, let's start with "fluency builder". 
@@ -295,6 +339,28 @@
 **Marco:** So, we are ready to listen to our dialogue a third time. We can hear all the words that we just talked about and all the phrases and you'll definitely be able to understand a lot better now. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Hello, I'm here to see Mr. Corleone.
+
+> B: Right this way, sir.
+
+> C: Charlie! What can I do for you?
+
+> B: Mr. Corlone, I'm really sorry to trouble you, but I need your help.
+
+> C: Anything for you, Charlie! Your father was like a brother to me.
+
+> B: Well, sir, you see, this recession has hit me pretty hard; I lost my job and I'm in a lot of debt.
+
+> C: I see. . . . . .
+
+> B: Yeah, you know, I've got credit card bills, car payments, I've got to pay my mortgage; and on top of all that, I have to pay my son's college tuition.
+
+> C: So you're asking for a loan.
+
+> B: Well, I just thought maybe you could help me out.
+
+> C: What? At a time like this? I'm broke too, you know! You're not the only one who has been hit by the recession! I lost half my money in the stock market crash! Go on! Get outa here!
 
 **Erica:** Today's dialogue was all about being in debt, right? 
 

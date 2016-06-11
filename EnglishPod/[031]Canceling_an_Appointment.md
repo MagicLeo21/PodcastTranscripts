@@ -28,6 +28,26 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Hello, Samantha speaking.
+
+> B: Hi Samantha. This is Angela calling.
+
+> A: Oh, hi Angela, what's up?
+
+> B: I'm just calling about our meeting today. I wonder, is it possible to reschedule our appointment in the afternoon? I have a bit of an emergency that I need to take care of.
+
+> A: Let me see, it shouldn't be too much of a problem…
+
+> B: I'm really sorry, I hope it doesn't inconvenience you too much, it's just this thing came up, and …
+
+> A: Angela, you know what, I can't make it to our meeting, either. Why don't we postpone it to tomorrow afternoon at the same time?
+
+> B: Sounds great. See you tomorrow.
+
+> C: Angela…Angela, look up! See that lady over there who is trying on a red leather jacket? Isn't that Samantha?
+
+> B: What? No wonder she told me she couldn't make it to the meeting, oh, no, I think she saw me…
+
 **Marco:** Okay, we have some really interesting words that you've probably listened to in this dialogue, so… 
 
 **Erica:** Uhu. 
@@ -111,6 +131,26 @@
 **Marco:** Okay, some great words there and, ah, we can listen to our dialogue a second time at a slower speed. 
 
 **DIALOGUE SECOND TIME** (slow) 
+
+> A: Hello, Samantha speaking.
+
+> B: Hi Samantha. This is Angela calling.
+
+> A: Oh, hi Angela, what's up?
+
+> B: I'm just calling about our meeting today. I wonder, is it possible to reschedule our appointment in the afternoon? I have a bit of an emergency that I need to take care of.
+
+> A: Let me see, it shouldn't be too much of a problem…
+
+> B: I'm really sorry, I hope it doesn't inconvenience you too much, it's just this thing came up, and …
+
+> A: Angela, you know what, I can't make it to our meeting, either. Why don't we postpone it to tomorrow afternoon at the same time?
+
+> B: Sounds great. See you tomorrow.
+
+> C: Angela…Angela, look up! See that lady over there who is trying on a red leather jacket? Isn't that Samantha?
+
+> B: What? No wonder she told me she couldn't make it to the meeting, oh, no, I think she saw me…
 
 **Erica:** Alright, so, in this dialogue we had some really great phrases that we should look at in "fluency builder". 
 
@@ -221,6 +261,26 @@
 **Marco:** So, let's listen to our dialogue a third time and now we're ready to understand everything. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Hello, Samantha speaking.
+
+> B: Hi Samantha. This is Angela calling.
+
+> A: Oh, hi Angela, what's up?
+
+> B: I'm just calling about our meeting today. I wonder, is it possible to reschedule our appointment in the afternoon? I have a bit of an emergency that I need to take care of.
+
+> A: Let me see, it shouldn't be too much of a problem…
+
+> B: I'm really sorry, I hope it doesn't inconvenience you too much, it's just this thing came up, and …
+
+> A: Angela, you know what, I can't make it to our meeting, either. Why don't we postpone it to tomorrow afternoon at the same time?
+
+> B: Sounds great. See you tomorrow.
+
+> C: Angela…Angela, look up! See that lady over there who is trying on a red leather jacket? Isn't that Samantha?
+
+> B: What? No wonder she told me she couldn't make it to the meeting, oh, no, I think she saw me…
 
 **Marco:** So, Erica, have you ever canceled an appointment like this, uh, under false pretenses? 
 

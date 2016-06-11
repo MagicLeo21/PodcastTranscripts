@@ -80,6 +80,24 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Hello, Arthur. What seems to be the problem?
+
+> B: Hey doc. Well, I think I might need glasses. I'm getting headaches, and I really struggle to see things that are far away. But I have always had 20/20 vision.
+
+> A: Sounds like you may be far-sighted. OK, then, cover your left eye and read the chart in front of you.
+
+> B: Mmm… . X, E, R, 3, a question mark, and I can't quite make out the other symbol but I think it's the peace sign.
+
+> A: Wow, Arthur! You're as blind as a bat!
+
+> B: Yeah, I know, my vision is really blurry at times.
+
+> A: Ok then, head on over to the other room and pick out some frames while I fill out your prescription.
+
+> B: Thanks doc!
+
+> A: Arthur, that's the bathroom.
+
 **Erica:** Well, this guy really has poor vision, hey? 
 
 **Marco:** Hehe. 
@@ -204,6 +222,24 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Hello, Arthur. What seems to be the problem?
+
+> B: Hey doc. Well, I think I might need glasses. I'm getting headaches, and I really struggle to see things that are far away. But I have always had 20/20 vision.
+
+> A: Sounds like you may be far-sighted. OK, then, cover your left eye and read the chart in front of you.
+
+> B: Mmm… . X, E, R, 3, a question mark, and I can't quite make out the other symbol but I think it's the peace sign.
+
+> A: Wow, Arthur! You're as blind as a bat!
+
+> B: Yeah, I know, my vision is really blurry at times.
+
+> A: Ok then, head on over to the other room and pick out some frames while I fill out your prescription.
+
+> B: Thanks doc!
+
+> A: Arthur, that's the bathroom.
+
 **Marco:** Alright, great stuff on our dialogue and with this we can start now with "Putting it together". 
 
 **Putting It Together** 
@@ -267,6 +303,24 @@
 **Erica:** So, why don't we listen to our dialogue and maybe we'll hear them again. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Hello, Arthur. What seems to be the problem?
+
+> B: Hey doc. Well, I think I might need glasses. I'm getting headaches, and I really struggle to see things that are far away. But I have always had 20/20 vision.
+
+> A: Sounds like you may be far-sighted. OK, then, cover your left eye and read the chart in front of you.
+
+> B: Mmm… . X, E, R, 3, a question mark, and I can't quite make out the other symbol but I think it's the peace sign.
+
+> A: Wow, Arthur! You're as blind as a bat!
+
+> B: Yeah, I know, my vision is really blurry at times.
+
+> A: Ok then, head on over to the other room and pick out some frames while I fill out your prescription.
+
+> B: Thanks doc!
+
+> A: Arthur, that's the bathroom.
 
 **Marco:** Okay, so, talking about going to the eye doctor today, I have a question for our listeners. 
 

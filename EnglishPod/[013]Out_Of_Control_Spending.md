@@ -86,6 +86,26 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: OK, so now the last point on our agenda. Jill, let's go over the profit and loss statement.
+
+> B: Great. Well, the main issue here, as you can see,
+is that our expenses are through the roof.
+
+> A: Let's see… These numbers are off the charts!
+What's going on here!
+
+> B: Well, um, sir, the company expenditures on entertainment and travel are out of control. Look at these bills for example. Just this month we've paid over twenty thousand dollars for hotel charges!
+
+> A: OK, thank you. I'll look into it.
+
+> B: The list goes on and on. Here, this is a bill for five thousand dollars for spa treatments!
+
+> A: Thank you; that will be all. I'll take care of it.
+
+> B: Look at this one sir, eight thousand dollars were spent in one night at a place called “Wild Things”?!
+
+> A: OK, I get it!! Thank you for your very thorough analysis!
+
 **Erica:** Okay, so, this accountant, she is, uh, pretty thorough, hey? 
 
 **Marco:** Hehe. She's really persistent about her job and the manager apparently is a little bit embarrassed. 
@@ -200,6 +220,26 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: OK, so now the last point on our agenda. Jill, let's go over the profit and loss statement.
+
+> B: Great. Well, the main issue here, as you can see,
+is that our expenses are through the roof.
+
+> A: Let's see… These numbers are off the charts!
+What's going on here!
+
+> B: Well, um, sir, the company expenditures on entertainment and travel are out of control. Look at these bills for example. Just this month we've paid over twenty thousand dollars for hotel charges!
+
+> A: OK, thank you. I'll look into it.
+
+> B: The list goes on and on. Here, this is a bill for five thousand dollars for spa treatments!
+
+> A: Thank you; that will be all. I'll take care of it.
+
+> B: Look at this one sir, eight thousand dollars were spent in one night at a place called “Wild Things”?!
+
+> A: OK, I get it!! Thank you for your very thorough analysis!
+
 **Erica:** Okay, so, I got it. 
 
 **Marco:** Yeah, it's clear now. 
@@ -275,6 +315,26 @@
 **Marco:** Okay, so, now let's listen to the dialogue a third time. It's gonna be at its normal speed, but now you have all the tools you need to understand it a lot better. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: OK, so now the last point on our agenda. Jill, let's go over the profit and loss statement.
+
+> B: Great. Well, the main issue here, as you can see,
+is that our expenses are through the roof.
+
+> A: Let's see… These numbers are off the charts!
+What's going on here!
+
+> B: Well, um, sir, the company expenditures on entertainment and travel are out of control. Look at these bills for example. Just this month we've paid over twenty thousand dollars for hotel charges!
+
+> A: OK, thank you. I'll look into it.
+
+> B: The list goes on and on. Here, this is a bill for five thousand dollars for spa treatments!
+
+> A: Thank you; that will be all. I'll take care of it.
+
+> B: Look at this one sir, eight thousand dollars were spent in one night at a place called “Wild Things”?!
+
+> A: OK, I get it!! Thank you for your very thorough analysis!
 
 **Erica:** Well, Marco, I guess one of the benefits of being an executive in a company, especially a large company, is you get a lot of amazing benefits. 
 

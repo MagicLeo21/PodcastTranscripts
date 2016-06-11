@@ -72,6 +72,20 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Um, sorry to bother you, um… my name is Rachel. I'm new here. Can I ask you a favor?
+
+> B: Hi Rachel, welcome on board. I'm afraid I can't help you right now. I'm getting ready for a very important meeting.
+
+> A: Excuse me, but can I bother you for a sec?
+
+> C: You know what, I'd love to help you, but I'm about to meet an important client. Do you wanna try Sean instead? He sits right over there.
+
+> A: Sorry to interrupt you Sean, could you do me a quick favor?
+
+> D: Actually, I'm working on a document that is due in a couple minutes. I really can't talk to you right now. Sorry about that.
+
+> A: Geeze! I just want to know where the bathroom is! What's wrong with you people!
+
 **Marco:** So, a pretty busy office. 
 
 **Erica:** Pretty unhelpful colleagues. 
@@ -224,6 +238,20 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Um, sorry to bother you, um… my name is Rachel. I'm new here. Can I ask you a favor?
+
+> B: Hi Rachel, welcome on board. I'm afraid I can't help you right now. I'm getting ready for a very important meeting.
+
+> A: Excuse me, but can I bother you for a sec?
+
+> C: You know what, I'd love to help you, but I'm about to meet an important client. Do you wanna try Sean instead? He sits right over there.
+
+> A: Sorry to interrupt you Sean, could you do me a quick favor?
+
+> D: Actually, I'm working on a document that is due in a couple minutes. I really can't talk to you right now. Sorry about that.
+
+> A: Geeze! I just want to know where the bathroom is! What's wrong with you people!
+
 **Marco:** Okay, so, there're some great ways that you can ask someone for a favor, right? 
 
 **Erica:** Yeah, we wanna show you some really useful phrases for asking for help. 
@@ -325,6 +353,20 @@
 **Erica:** Yeah, let's listen to our dialogue for the third time and this time I'm sure you'll understand it a lot better. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Um, sorry to bother you, um… my name is Rachel. I'm new here. Can I ask you a favor?
+
+> B: Hi Rachel, welcome on board. I'm afraid I can't help you right now. I'm getting ready for a very important meeting.
+
+> A: Excuse me, but can I bother you for a sec?
+
+> C: You know what, I'd love to help you, but I'm about to meet an important client. Do you wanna try Sean instead? He sits right over there.
+
+> A: Sorry to interrupt you Sean, could you do me a quick favor?
+
+> D: Actually, I'm working on a document that is due in a couple minutes. I really can't talk to you right now. Sorry about that.
+
+> A: Geeze! I just want to know where the bathroom is! What's wrong with you people!
 
 **Marco:** Alright, so, now you have all the vocabulary necessary the next time you need to ask someone for a favor. 
 

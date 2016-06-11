@@ -46,6 +46,24 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Oh, Armand, thank you for such a thoughtful invitation! It's really very nice of you to invite us over for dinner, don't you think so, Ellen?
+
+> B: Oh, yes of course! We'd love to come over. Can I bring anything?
+
+> C: No, don't worry about it; I'll take care of everything. I'll see you tonight. Come with an appetite… I know I will!
+
+> B: I don't want go over to his place for dinner! He gives me the creeps! Why on earth did you accept?
+
+> A: Oh come on Ellen, it will be nice to get to know him. Besides, he's new to the neighborhood, and it would be rude to decline his invitation.
+
+> B: I guess so… You always rope me into things like this!
+
+> C: Ladies! Thank you for coming! You look delicious…I mean beautiful. Please come in.
+
+> A: Oh Oh Armand! You are too kind!
+
+> B: How did I get myself into this…
+
 **Marco:** Wow! I'm really anxious to see what happens in… in this dinner party. 
 
 **Erica:** Yeah, I guess we'll have to stay tuned and find out… 
@@ -161,6 +179,24 @@
 **Erica:** This time a little bit slower and you'll be able to understand the language a little bit more clearly. 
 
 **DIALOGUE SECOND TIME** (slow) 
+
+> A: Oh, Armand, thank you for such a thoughtful invitation! It's really very nice of you to invite us over for dinner, don't you think so, Ellen?
+
+> B: Oh, yes of course! We'd love to come over. Can I bring anything?
+
+> C: No, don't worry about it; I'll take care of everything. I'll see you tonight. Come with an appetite… I know I will!
+
+> B: I don't want go over to his place for dinner! He gives me the creeps! Why on earth did you accept?
+
+> A: Oh come on Ellen, it will be nice to get to know him. Besides, he's new to the neighborhood, and it would be rude to decline his invitation.
+
+> B: I guess so… You always rope me into things like this!
+
+> C: Ladies! Thank you for coming! You look delicious…I mean beautiful. Please come in.
+
+> A: Oh Oh Armand! You are too kind!
+
+> B: How did I get myself into this…
 
 **Marco:** Well, I guess that's a lot more clearer and with that we can start "putting it together" today. 
 
@@ -281,6 +317,24 @@
 **Marco:** Okay, great stuff! So, let's just listen to our dialogue a third time. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Oh, Armand, thank you for such a thoughtful invitation! It's really very nice of you to invite us over for dinner, don't you think so, Ellen?
+
+> B: Oh, yes of course! We'd love to come over. Can I bring anything?
+
+> C: No, don't worry about it; I'll take care of everything. I'll see you tonight. Come with an appetite… I know I will!
+
+> B: I don't want go over to his place for dinner! He gives me the creeps! Why on earth did you accept?
+
+> A: Oh come on Ellen, it will be nice to get to know him. Besides, he's new to the neighborhood, and it would be rude to decline his invitation.
+
+> B: I guess so… You always rope me into things like this!
+
+> C: Ladies! Thank you for coming! You look delicious…I mean beautiful. Please come in.
+
+> A: Oh Oh Armand! You are too kind!
+
+> B: How did I get myself into this…
 
 **Marco:** We want to know what you think happens next. 
 

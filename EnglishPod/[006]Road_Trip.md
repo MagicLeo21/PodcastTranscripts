@@ -74,6 +74,28 @@
 
 **DIALOGUE FIRST TIME**
 
+> A: So, are we all ready to go?
+
+> B: Yup, I think so. The car's packed; we have munchies and music, and the map's in the car.
+
+> A: Did you get the camera?
+
+> B: Got it! Did you fill up the tank?
+
+> A: Yup, it's all set.
+
+> B: You're sure we're not forgetting anything?
+
+> A: I'm sure… we've got all our bases covered.
+
+> B: Well… let's get going then! I love road trips!
+
+> B: Um… do you think we can make a pit stop?
+
+> A: But we've only been on the road for ten minutes.
+
+> B: I know, but I forgot to go to the bathroom before we left.
+
 **Erica:** Well, she forgot to go to the bathroom.
 
 **Marco:** Yeah, I hate it when this happens.
@@ -210,6 +232,28 @@
 
 **DIALOGUE SECOND TIME** (slow)
 
+> A: So, are we all ready to go?
+
+> B: Yup, I think so. The car's packed; we have munchies and music, and the map's in the car.
+
+> A: Did you get the camera?
+
+> B: Got it! Did you fill up the tank?
+
+> A: Yup, it's all set.
+
+> B: You're sure we're not forgetting anything?
+
+> A: I'm sure… we've got all our bases covered.
+
+> B: Well… let's get going then! I love road trips!
+
+> B: Um… do you think we can make a pit stop?
+
+> A: But we've only been on the road for ten minutes.
+
+> B: I know, but I forgot to go to the bathroom before we left.
+
 **Erica:** So, that was a little more clear this time, wasn't it?
 
 **Marco:** Yeah, you can definitely understand better about… what we've been talking about.
@@ -259,6 +303,28 @@
 **Marco:** Yes, and we're all set to listen to this dialogue for a third time and this time it's gonna be at its normal speed.
 
 **DIALOGUE THIRD TIME**
+
+> A: So, are we all ready to go?
+
+> B: Yup, I think so. The car's packed; we have munchies and music, and the map's in the car.
+
+> A: Did you get the camera?
+
+> B: Got it! Did you fill up the tank?
+
+> A: Yup, it's all set.
+
+> B: You're sure we're not forgetting anything?
+
+> A: I'm sure… we've got all our bases covered.
+
+> B: Well… let's get going then! I love road trips!
+
+> B: Um… do you think we can make a pit stop?
+
+> A: But we've only been on the road for ten minutes.
+
+> B: I know, but I forgot to go to the bathroom before we left.
 
 **Marco:** So, Erica, you said you've been on a million road trips, what was that all about? Where have you been?
 

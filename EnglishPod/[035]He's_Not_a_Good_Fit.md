@@ -64,6 +64,24 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: So, Lauren, I just wanted to talk to you quickly about our new customer support representative, Jason Huntley.
+
+> B: Sure, what's up?
+
+> A: Basically, I've got a few concerns about him, and the bottom line is, I don't think he's a good fit for our company.
+
+> B: Okay… what makes you say that? I thought you were pleased with his overall performance. Didn't you just tell me last week how impressed you were with his attitude?
+
+> A: Yeah, his attitude is great, but he's really unreliable. Sometimes he's really productive, but then other times… take last Tuesday for instance, he was forty-five minutes late for our morning meeting!
+
+> B: Well, I'm sure he had a perfectly good reason…
+
+> A: But that's not the only thing… you know, he really doesn't have the best work ethic, I'm constantly catching him on MSN and Facebook when he should be talking to clients.
+
+> B: Yeah, but come on, Geoff, as if you don't check Facebook at work. Look, you hired this guy, we've invested a lot of time and money in his training, so now it's up to you to coach him. Make it work, Geoff!
+
+> A: Make it work, Geoff. You would say that, wouldn't you, he is your cousin; what a jerk, make me hire your stupid, useless, cousin.
+
 **Marco:** So, apparently Lauren hired her cousin. 
 
 **Erica:** Yes. 
@@ -160,6 +178,24 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: So, Lauren, I just wanted to talk to you quickly about our new customer support representative, Jason Huntley.
+
+> B: Sure, what's up?
+
+> A: Basically, I've got a few concerns about him, and the bottom line is, I don't think he's a good fit for our company.
+
+> B: Okay… what makes you say that? I thought you were pleased with his overall performance. Didn't you just tell me last week how impressed you were with his attitude?
+
+> A: Yeah, his attitude is great, but he's really unreliable. Sometimes he's really productive, but then other times… take last Tuesday for instance, he was forty-five minutes late for our morning meeting!
+
+> B: Well, I'm sure he had a perfectly good reason…
+
+> A: But that's not the only thing… you know, he really doesn't have the best work ethic, I'm constantly catching him on MSN and Facebook when he should be talking to clients.
+
+> B: Yeah, but come on, Geoff, as if you don't check Facebook at work. Look, you hired this guy, we've invested a lot of time and money in his training, so now it's up to you to coach him. Make it work, Geoff!
+
+> A: Make it work, Geoff. You would say that, wouldn't you, he is your cousin; what a jerk, make me hire your stupid, useless, cousin.
+
 **Marco:** Alright, so, if you noticed, a lot of useful phrases have come up, so let's take a look at "fluency builder". 
 
 **Fluency Builder** 
@@ -241,6 +277,24 @@
 **Marco:** Okay, perfectly good. Okay, so now we can listen to our dialogue a third time at a normal speed and now we're ready to understand everything. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: So, Lauren, I just wanted to talk to you quickly about our new customer support representative, Jason Huntley.
+
+> B: Sure, what's up?
+
+> A: Basically, I've got a few concerns about him, and the bottom line is, I don't think he's a good fit for our company.
+
+> B: Okay… what makes you say that? I thought you were pleased with his overall performance. Didn't you just tell me last week how impressed you were with his attitude?
+
+> A: Yeah, his attitude is great, but he's really unreliable. Sometimes he's really productive, but then other times… take last Tuesday for instance, he was forty-five minutes late for our morning meeting!
+
+> B: Well, I'm sure he had a perfectly good reason…
+
+> A: But that's not the only thing… you know, he really doesn't have the best work ethic, I'm constantly catching him on MSN and Facebook when he should be talking to clients.
+
+> B: Yeah, but come on, Geoff, as if you don't check Facebook at work. Look, you hired this guy, we've invested a lot of time and money in his training, so now it's up to you to coach him. Make it work, Geoff!
+
+> A: Make it work, Geoff. You would say that, wouldn't you, he is your cousin; what a jerk, make me hire your stupid, useless, cousin.
 
 **Marco:** Okay, I hope everyone enjoyed our lesson today. 
 

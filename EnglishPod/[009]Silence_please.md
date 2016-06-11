@@ -82,6 +82,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Those people in front of us are making so much noise. Its so inconsiderate!
+
+> B: Don't worry about it; it's not such a big deal.
+
+> A: Oh… I cant hear a thing! Excuse me, can you keep it down?
+
+> C: Sure, sorry 'bout that!
+
+> A: Someone's phone is ringing!
+
+> B: Honey, I think its your phone. Did you forget to switch it off?
+
+> A: Oh, no! You're right. That's so embarrassing!
+
+> C: Do you mind keeping it down? I'm trying to watch a movie here!
+
 **Erica:** Well, I hate it when people's phones ring when I'm watching a movie. 
 
 **Marco:** Hehe. I think everyone… gets kind of, uh, angry, but we're gonna talk about this a little bit later. Why don't we take a look now at our "language takeaway"? 
@@ -184,6 +200,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Those people in front of us are making so much noise. Its so inconsiderate!
+
+> B: Don't worry about it; it's not such a big deal.
+
+> A: Oh… I cant hear a thing! Excuse me, can you keep it down?
+
+> C: Sure, sorry 'bout that!
+
+> A: Someone's phone is ringing!
+
+> B: Honey, I think its your phone. Did you forget to switch it off?
+
+> A: Oh, no! You're right. That's so embarrassing!
+
+> C: Do you mind keeping it down? I'm trying to watch a movie here!
+
 **Marco:** Okay, great, now with the dialogue slower it's really understandable. 
 
 **Erica:** Yeah, I think you could catch those key words a lot better. 
@@ -233,6 +265,23 @@
 **Marco:** Hehe. Exactly. So now that we've talked about all these great things we can listen to the dialogue a third time, but it'll be at its normal speed. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Those people in front of us are making so much noise. Its so inconsiderate!
+
+> B: Don't worry about it; it's not such a big deal.
+
+> A: Oh… I cant hear a thing! Excuse me, can you keep it down?
+
+> C: Sure, sorry 'bout that!
+
+> A: Someone's phone is ringing!
+
+> B: Honey, I think its your phone. Did you forget to switch it off?
+
+> A: Oh, no! You're right. That's so embarrassing!
+
+> C: Do you mind keeping it down? I'm trying to watch a movie here!
+
 
 **Erica:** So, I know that in different countries there're different habits about watching movies. 
 

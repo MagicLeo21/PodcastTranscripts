@@ -64,6 +64,28 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Oh, look, there's Veronica and her boyfriend. She's always going on about him at the office. Oh, great, they saw us. They're coming this way.
+
+> B: Oh, man…
+
+> C: Jessica! Arthur! Hi! I'd like you to meet my boyfriend Greg, he's the V. P. of quality and safety for a top Fortune 500 food company.
+
+> A: Nice to meet you. This is my husband, Arthur.
+
+> B: Hey, how's it going?
+
+> D: Hello.
+
+> A: Veronica talks about you all the time. I guess you must be pretty busy at work.
+
+> D: Well, yeah, a V. P. position is not easy, you know! I implement policies and procedures nationwide. of various departments, as well as train junior managers in FDA and EPA regulations. I also have to oversee daily ope
+
+> B: Wow, yeah… that sounds exciting.
+
+> D: And what about you, Arthur? What do you do for a living?
+
+> B: Oh, I'm a Top Gun pilot!
+
 **Marco:** Alright, great music for our dialogue again, ha? 
 
 **Erica:** Chosen by… 
@@ -186,6 +208,28 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Oh, look, there's Veronica and her boyfriend. She's always going on about him at the office. Oh, great, they saw us. They're coming this way.
+
+> B: Oh, man…
+
+> C: Jessica! Arthur! Hi! I'd like you to meet my boyfriend Greg, he's the V. P. of quality and safety for a top Fortune 500 food company.
+
+> A: Nice to meet you. This is my husband, Arthur.
+
+> B: Hey, how's it going?
+
+> D: Hello.
+
+> A: Veronica talks about you all the time. I guess you must be pretty busy at work.
+
+> D: Well, yeah, a V. P. position is not easy, you know! I implement policies and procedures nationwide. of various departments, as well as train junior managers in FDA and EPA regulations. I also have to oversee daily ope
+
+> B: Wow, yeah… that sounds exciting.
+
+> D: And what about you, Arthur? What do you do for a living?
+
+> B: Oh, I'm a Top Gun pilot!
+
 **Marco:** Okay, great stuff! With this, now we can start with our "fluency builder" for today. 
 
 **Fluency Builder** 
@@ -273,6 +317,28 @@
 **Marco:** Hehe. Okay, so, we're ready now to listen to our dialogue a last time and now you are ready to understand everything. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Oh, look, there's Veronica and her boyfriend. She's always going on about him at the office. Oh, great, they saw us. They're coming this way.
+
+> B: Oh, man…
+
+> C: Jessica! Arthur! Hi! I'd like you to meet my boyfriend Greg, he's the V. P. of quality and safety for a top Fortune 500 food company.
+
+> A: Nice to meet you. This is my husband, Arthur.
+
+> B: Hey, how's it going?
+
+> D: Hello.
+
+> A: Veronica talks about you all the time. I guess you must be pretty busy at work.
+
+> D: Well, yeah, a V. P. position is not easy, you know! I implement policies and procedures nationwide. of various departments, as well as train junior managers in FDA and EPA regulations. I also have to oversee daily ope
+
+> B: Wow, yeah… that sounds exciting.
+
+> D: And what about you, Arthur? What do you do for a living?
+
+> B: Oh, I'm a Top Gun pilot!
 
 **Marco:** Okay, so, I have a little challenge for our listeners today. I have… 
 

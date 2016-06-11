@@ -22,6 +22,30 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: I'm so excited about Chinese New Year! When do I get to visit Grandma? Grandma makes the best dumplings in the world!
+
+> B: Ha ha, right. Sounds to me like you're more excited about the dumplings than seeing your Grandma.
+
+> A: Of course I miss Grandma, too. I bet she's gonna teach me how to play Mahjong! Hey, Dad, are you going to buy me firecrackers this year? We're going to have the best fireworks! I'm really looking forward to lighting them!
+
+> B: Son, firecrackers aren't toys; they're dangerous!
+
+> A: No, fireworks are awesome!
+
+> B: Whoa, don't you remember? Last year when I set off the firecrackers, you covered both your ears and hid behind your mother?
+
+> A: Dad! I was scared because… because I saw a bug. That's all.
+
+> B: Hahaha… really?
+
+> A: Oh, and I can't wait to watch the dragon dance! Dad, can I sit on your shoulders this time?
+
+> B: Hey, I offered last year…
+
+> A: Well, I… anyways, I was just thinking of the red envelopes. I wanna make a list of all the things I'm gonna buy with my red envelope money! I can't wait! I'm gonna have so much money! Mom, can I get a pen and a piece of paper?
+
+> A: I want a new transformer, no, two transformers…the Optimus Prime, and…maybe the wheeljack? I'll get a PSP game, hahaha, and I'll buy the entire class lunch at MacDonald's…
+
 **Marco:** Okay, so, Chinese New Year; a lot of exiting vocabulary here. 
 
 **Erica:** Uhu. 
@@ -186,6 +210,30 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: I'm so excited about Chinese New Year! When do I get to visit Grandma? Grandma makes the best dumplings in the world!
+
+> B: Ha ha, right. Sounds to me like you're more excited about the dumplings than seeing your Grandma.
+
+> A: Of course I miss Grandma, too. I bet she's gonna teach me how to play Mahjong! Hey, Dad, are you going to buy me firecrackers this year? We're going to have the best fireworks! I'm really looking forward to lighting them!
+
+> B: Son, firecrackers aren't toys; they're dangerous!
+
+> A: No, fireworks are awesome!
+
+> B: Whoa, don't you remember? Last year when I set off the firecrackers, you covered both your ears and hid behind your mother?
+
+> A: Dad! I was scared because… because I saw a bug. That's all.
+
+> B: Hahaha… really?
+
+> A: Oh, and I can't wait to watch the dragon dance! Dad, can I sit on your shoulders this time?
+
+> B: Hey, I offered last year…
+
+> A: Well, I… anyways, I was just thinking of the red envelopes. I wanna make a list of all the things I'm gonna buy with my red envelope money! I can't wait! I'm gonna have so much money! Mom, can I get a pen and a piece of paper?
+
+> A: I want a new transformer, no, two transformers…the Optimus Prime, and…maybe the wheeljack? I'll get a PSP game, hahaha, and I'll buy the entire class lunch at MacDonald's…
+
 **Marco:** Okay, so, we saw some really great phrases of describing excitement. 
 
 **Erica:** Uhu. 
@@ -305,6 +353,30 @@
 **Erica:** Well, I guess we're ready to listen to our dialogue for the third time and then when we come back, Daini's gonna tell us all about Chinese New Year. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: I'm so excited about Chinese New Year! When do I get to visit Grandma? Grandma makes the best dumplings in the world!
+
+> B: Ha ha, right. Sounds to me like you're more excited about the dumplings than seeing your Grandma.
+
+> A: Of course I miss Grandma, too. I bet she's gonna teach me how to play Mahjong! Hey, Dad, are you going to buy me firecrackers this year? We're going to have the best fireworks! I'm really looking forward to lighting them!
+
+> B: Son, firecrackers aren't toys; they're dangerous!
+
+> A: No, fireworks are awesome!
+
+> B: Whoa, don't you remember? Last year when I set off the firecrackers, you covered both your ears and hid behind your mother?
+
+> A: Dad! I was scared because… because I saw a bug. That's all.
+
+> B: Hahaha… really?
+
+> A: Oh, and I can't wait to watch the dragon dance! Dad, can I sit on your shoulders this time?
+
+> B: Hey, I offered last year…
+
+> A: Well, I… anyways, I was just thinking of the red envelopes. I wanna make a list of all the things I'm gonna buy with my red envelope money! I can't wait! I'm gonna have so much money! Mom, can I get a pen and a piece of paper?
+
+> A: I want a new transformer, no, two transformers…the Optimus Prime, and…maybe the wheeljack? I'll get a PSP game, hahaha, and I'll buy the entire class lunch at MacDonald's…
 
 **Marco:** So, Daini, what are these red packets of money about? 
 

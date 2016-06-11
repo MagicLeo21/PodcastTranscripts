@@ -54,6 +54,23 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: I can't believe that Anthony is finally getting married!
+
+> B: Yeah well it's about time! He's been living with his parents for 40 years!
+
+> A: Don't be mean. Look here come the bridesmaids!
+Their dresses look beautiful!
+
+> B: Who are those kids walking down the aisle?
+
+> A: That's the flower girl and the ring bearer. I'm pretty sure they're the groom's niece and nephew. Oh, they look so cute!
+
+> B: I just hope the priest makes it quick. I'm starving. I hope the food's good at the reception.
+
+> A: That's all you ever think about, food! Oh, I think the bride's coming now! She looks gorgeous. Wait, what's she doing? Where's she going?
+
+> B: Oh great! Does this mean that the reception is canceled?
+
 **Erica:** Oh, Marco, that sounds sad. 
 
 **Marco:** Yeah, I know the reception is cancelled now. 
@@ -230,6 +247,23 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: I can't believe that Anthony is finally getting married!
+
+> B: Yeah well it's about time! He's been living with his parents for 40 years!
+
+> A: Don't be mean. Look here come the bridesmaids!
+Their dresses look beautiful!
+
+> B: Who are those kids walking down the aisle?
+
+> A: That's the flower girl and the ring bearer. I'm pretty sure they're the groom's niece and nephew. Oh, they look so cute!
+
+> B: I just hope the priest makes it quick. I'm starving. I hope the food's good at the reception.
+
+> A: That's all you ever think about, food! Oh, I think the bride's coming now! She looks gorgeous. Wait, what's she doing? Where's she going?
+
+> B: Oh great! Does this mean that the reception is canceled?
+
 **Marco:** Now, in this dialogue we have a word that many students often make mistakes on. 
 
 **Erica:** So, this is a word that causes a lot of problems. 
@@ -283,6 +317,23 @@
 **Marco:** Right, so, now you know exactly how to use this word, we are ready to listen to our dialogue again for a third time and this time it's gonna be at a normal speed. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: I can't believe that Anthony is finally getting married!
+
+> B: Yeah well it's about time! He's been living with his parents for 40 years!
+
+> A: Don't be mean. Look here come the bridesmaids!
+Their dresses look beautiful!
+
+> B: Who are those kids walking down the aisle?
+
+> A: That's the flower girl and the ring bearer. I'm pretty sure they're the groom's niece and nephew. Oh, they look so cute!
+
+> B: I just hope the priest makes it quick. I'm starving. I hope the food's good at the reception.
+
+> A: That's all you ever think about, food! Oh, I think the bride's coming now! She looks gorgeous. Wait, what's she doing? Where's she going?
+
+> B: Oh great! Does this mean that the reception is canceled?
 
 **Marco:** Okay, well, I'm gonna be honest with you, I don't know too much about marriages, because, first of all, I'm not married and I"ve never really been too many marriages, so, Erica, some questions for you. 
 

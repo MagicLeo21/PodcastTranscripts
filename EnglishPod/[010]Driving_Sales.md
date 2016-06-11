@@ -92,6 +92,25 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: All right, people. We're holding this meeting today because we've got to do something about our sales, and we need to do it NOW! I want concrete solutions. How do you intend to drive sales… Roger?
+
+> B: Well, in fact, we're the most expensive in the market, so maybe we need to lower our prices to match the competitors?
+
+> A: Lower our prices? Not very creative. It'll never fly with Swan. What kind of thinking is that? Geez. Anybody else have a better plan? Natalie?
+
+> C: Um, perhaps, um, a sales promotion. Maybe a two-for-one offer, or something like that!
+
+> A: What? That's the same thing. Bad idea. Really bad idea. Dammit people come on! Think! The CEO will be here any minute.
+
+> D: Do we have any ideas yet?
+
+> C: Yes Mr. Swan, we were kind of considering a two for one offer to get more competitive.
+
+> D: A two-for-one promotion? Hmm. I kind of like the sound of that. It sounds like something we should consider.
+
+> A: Yeah, exactly. Just what I was thinking! In fact, that's a brilliant idea! I'm glad we thought of that.
+Very creative.
+
 **Marco:** Okay, so, an interesting manager, right? 
 
 **Erica:** I don't know about interesting, maybe I would think bad manager. 
@@ -192,6 +211,25 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: All right, people. We're holding this meeting today because we've got to do something about our sales, and we need to do it NOW! I want concrete solutions. How do you intend to drive sales… Roger?
+
+> B: Well, in fact, we're the most expensive in the market, so maybe we need to lower our prices to match the competitors?
+
+> A: Lower our prices? Not very creative. It'll never fly with Swan. What kind of thinking is that? Geez. Anybody else have a better plan? Natalie?
+
+> C: Um, perhaps, um, a sales promotion. Maybe a two-for-one offer, or something like that!
+
+> A: What? That's the same thing. Bad idea. Really bad idea. Dammit people come on! Think! The CEO will be here any minute.
+
+> D: Do we have any ideas yet?
+
+> C: Yes Mr. Swan, we were kind of considering a two for one offer to get more competitive.
+
+> D: A two-for-one promotion? Hmm. I kind of like the sound of that. It sounds like something we should consider.
+
+> A: Yeah, exactly. Just what I was thinking! In fact, that's a brilliant idea! I'm glad we thought of that.
+Very creative.
+
 **Marco:** Okay, great, I hope everyone understands a lot better now. 
 
 **Erica:** And I hope everyone could listen out for some of those key words. 
@@ -287,6 +325,25 @@
 **Marco:** Okay, so, we're ready to listen to our dialogue again, a third time, but at its normal speed. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: All right, people. We're holding this meeting today because we've got to do something about our sales, and we need to do it NOW! I want concrete solutions. How do you intend to drive sales… Roger?
+
+> B: Well, in fact, we're the most expensive in the market, so maybe we need to lower our prices to match the competitors?
+
+> A: Lower our prices? Not very creative. It'll never fly with Swan. What kind of thinking is that? Geez. Anybody else have a better plan? Natalie?
+
+> C: Um, perhaps, um, a sales promotion. Maybe a two-for-one offer, or something like that!
+
+> A: What? That's the same thing. Bad idea. Really bad idea. Dammit people come on! Think! The CEO will be here any minute.
+
+> D: Do we have any ideas yet?
+
+> C: Yes Mr. Swan, we were kind of considering a two for one offer to get more competitive.
+
+> D: A two-for-one promotion? Hmm. I kind of like the sound of that. It sounds like something we should consider.
+
+> A: Yeah, exactly. Just what I was thinking! In fact, that's a brilliant idea! I'm glad we thought of that.
+Very creative.
 
 **Marco:** Alright, so, listening to this dialogue makes you think about this boss. I'm pretty sure everyone has had a manger or a… supervisor that's similar to this guy. 
 

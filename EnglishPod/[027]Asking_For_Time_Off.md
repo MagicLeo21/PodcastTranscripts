@@ -24,6 +24,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Mr. McKenna, do you have a second? I need to talk to you about something.
+
+> B: Sure, Liv, what can I do for you?
+
+> A: Well, I was just wondering. . . you see, I know I've used up all my vacation days this year, but my sister is getting married, and the wedding is overseas, and, well. . .
+
+> B: You wanna take some time off, is that right?
+
+> A: Well, sir, I was just hoping that I might be able to take some unpaid leave this year.
+
+> B: What dates are you planning on taking off? I'll need at least two months notice, so that I can plan for your absence.
+
+> A: I was thinking of taking off from September first until the thirtieth . Would you be okay with that?
+
+> B: Well, I guess so.
+
 **Erica:** Well, it sounds like the boss wasn't too happy about Liv's request. 
 
 **Marco:** Well, she wanted to take off for thirty days, so… 
@@ -122,6 +138,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Mr. McKenna, do you have a second? I need to talk to you about something.
+
+> B: Sure, Liv, what can I do for you?
+
+> A: Well, I was just wondering. . . you see, I know I've used up all my vacation days this year, but my sister is getting married, and the wedding is overseas, and, well. . .
+
+> B: You wanna take some time off, is that right?
+
+> A: Well, sir, I was just hoping that I might be able to take some unpaid leave this year.
+
+> B: What dates are you planning on taking off? I'll need at least two months notice, so that I can plan for your absence.
+
+> A: I was thinking of taking off from September first until the thirtieth . Would you be okay with that?
+
+> B: Well, I guess so.
+
 **Erica:** A lot of non-native English speakers sometimes feel quite nervous about asking their boss for time off, hey? 
 
 **Marco:** Yeah, I guess it's, ah, kind of a difficult subject. 
@@ -171,6 +203,22 @@
 **Marco:** Okay, so now, let's listen to our dialogue a third time. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Mr. McKenna, do you have a second? I need to talk to you about something.
+
+> B: Sure, Liv, what can I do for you?
+
+> A: Well, I was just wondering. . . you see, I know I've used up all my vacation days this year, but my sister is getting married, and the wedding is overseas, and, well. . .
+
+> B: You wanna take some time off, is that right?
+
+> A: Well, sir, I was just hoping that I might be able to take some unpaid leave this year.
+
+> B: What dates are you planning on taking off? I'll need at least two months notice, so that I can plan for your absence.
+
+> A: I was thinking of taking off from September first until the thirtieth . Would you be okay with that?
+
+> B: Well, I guess so.
 
 **Erica:** I really noticed how Liv in this dialogue used a lot of really polite language, hey? 
 

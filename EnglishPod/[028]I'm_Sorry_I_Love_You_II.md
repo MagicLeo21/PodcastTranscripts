@@ -42,6 +42,20 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: I'm so relieved that your ankle wasn't broken! I feel just awful about this whole thing. I wanna make it up to you. Let me take you out to dinner tonight. My treat.
+
+> B: That sounds great! I'd love to! Here is my address. Pick me up at eight?
+
+> A: Perfect!
+
+> B: Thank you for such a lovely evening! The food was amazing, and I had a great time.
+
+> A: Me too. You look so beautiful tonight! I wish this night would never end. There's something I have to tell you…
+
+> B: What is it?
+
+> A: I woke up today thinking this would be just like any other ordinary day, but I was wrong. A twist of fate brought us together. I crashed into your life and you into mine, and this may sound crazy, but I'm falling.
+
 **Marco:** Wow! Such a romantic dialogue. 
 
 **Erica:** It really sounds like they're falling in love. 
@@ -153,6 +167,20 @@
 **Erica:** This time it'll be a little bit slower and this will help you to understand the language more clearly. 
 
 **DIALOGUE SECOND TIME** (slow) 
+
+> A: I'm so relieved that your ankle wasn't broken! I feel just awful about this whole thing. I wanna make it up to you. Let me take you out to dinner tonight. My treat.
+
+> B: That sounds great! I'd love to! Here is my address. Pick me up at eight?
+
+> A: Perfect!
+
+> B: Thank you for such a lovely evening! The food was amazing, and I had a great time.
+
+> A: Me too. You look so beautiful tonight! I wish this night would never end. There's something I have to tell you…
+
+> B: What is it?
+
+> A: I woke up today thinking this would be just like any other ordinary day, but I was wrong. A twist of fate brought us together. I crashed into your life and you into mine, and this may sound crazy, but I'm falling.
 
 **Marco:** Okay, so, we looked at some great vocabulary and now we can look at some great phrases… 
 
@@ -275,6 +303,20 @@
 **Erica:** Great, on a happier note let's listen to the dialogue a third time. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: I'm so relieved that your ankle wasn't broken! I feel just awful about this whole thing. I wanna make it up to you. Let me take you out to dinner tonight. My treat.
+
+> B: That sounds great! I'd love to! Here is my address. Pick me up at eight?
+
+> A: Perfect!
+
+> B: Thank you for such a lovely evening! The food was amazing, and I had a great time.
+
+> A: Me too. You look so beautiful tonight! I wish this night would never end. There's something I have to tell you…
+
+> B: What is it?
+
+> A: I woke up today thinking this would be just like any other ordinary day, but I was wrong. A twist of fate brought us together. I crashed into your life and you into mine, and this may sound crazy, but I'm falling.
 
 **Marco:** Okay, so, we're back. Erica, I know you have a story of a twist of fate in your life. 
 

@@ -78,6 +78,26 @@ _[NOTE: Canadian spelling - chequing account]_
 
 **DIALOGUE FIRST TIME** 
 
+> A: Next, please. May I help you, sir?
+
+> B: Hello, yes, I'd like to open a bank account.
+
+> A: Certainly, I can help you with that. What type of account would you like to open? A chequing or a savings account?
+
+> B: What features do they offer?
+
+> A: Well, if you just take a look here, see, with our chequing account, you can have unlimited daily transactions for a small monthly fee, and our savings account has a higher interest rate, but you must carry a minimum balance of $ 10,000 dollars.
+
+> B: I see, well, I think I'm more interested in a chequing account; I like to have easy access to my money.
+
+> A: Alright, then, with this chequing account you'll be issued a debit card and a cheque book. Will you require overdraft protection? There is an extra fee for that.
+
+> B: No, that won't be necessary.
+
+> A: In that case, I'll get you to fill out this paperwork; I'll need your social insurance number, and two pieces of government ID. If you could just sign here, and here, and here; we'll be all set. Would you like to make a deposit today?
+
+> B: Yes, I'd like to deposit one billion dollars.
+
 **Marco:** Alright, one billion dollars. 
 
 **Erica:** That's a lot of money! 
@@ -238,6 +258,26 @@ _[NOTE: Canadian spelling - chequing account]_
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Next, please. May I help you, sir?
+
+> B: Hello, yes, I'd like to open a bank account.
+
+> A: Certainly, I can help you with that. What type of account would you like to open? A chequing or a savings account?
+
+> B: What features do they offer?
+
+> A: Well, if you just take a look here, see, with our chequing account, you can have unlimited daily transactions for a small monthly fee, and our savings account has a higher interest rate, but you must carry a minimum balance of $ 10,000 dollars.
+
+> B: I see, well, I think I'm more interested in a chequing account; I like to have easy access to my money.
+
+> A: Alright, then, with this chequing account you'll be issued a debit card and a cheque book. Will you require overdraft protection? There is an extra fee for that.
+
+> B: No, that won't be necessary.
+
+> A: In that case, I'll get you to fill out this paperwork; I'll need your social insurance number, and two pieces of government ID. If you could just sign here, and here, and here; we'll be all set. Would you like to make a deposit today?
+
+> B: Yes, I'd like to deposit one billion dollars.
+
 **Marco:** We heard some interesting phrases of how to tell somebody to do something in a polite way. 
 
 **Erica:** Yes. 
@@ -327,6 +367,26 @@ _[NOTE: Canadian spelling - chequing account]_
 **Erica:** Let's listen to the dialogue one last time and we'll catch all of this wonderful language. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Next, please. May I help you, sir?
+
+> B: Hello, yes, I'd like to open a bank account.
+
+> A: Certainly, I can help you with that. What type of account would you like to open? A chequing or a savings account?
+
+> B: What features do they offer?
+
+> A: Well, if you just take a look here, see, with our chequing account, you can have unlimited daily transactions for a small monthly fee, and our savings account has a higher interest rate, but you must carry a minimum balance of $ 10,000 dollars.
+
+> B: I see, well, I think I'm more interested in a chequing account; I like to have easy access to my money.
+
+> A: Alright, then, with this chequing account you'll be issued a debit card and a cheque book. Will you require overdraft protection? There is an extra fee for that.
+
+> B: No, that won't be necessary.
+
+> A: In that case, I'll get you to fill out this paperwork; I'll need your social insurance number, and two pieces of government ID. If you could just sign here, and here, and here; we'll be all set. Would you like to make a deposit today?
+
+> B: Yes, I'd like to deposit one billion dollars.
 
 **Marco:** Okay, so, an interesting thing here: not many countries use checks. 
 

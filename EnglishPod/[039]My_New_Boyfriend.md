@@ -28,6 +28,24 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Irene! I heard you were on a date last night! So, how did it go? I want all the juicy details!
+
+> B: Um… well, actually, we had a fantastic time last night. He was…amazing!
+
+> A: Okay, now you really have to fill me in. What's he like?
+
+> B: He's really good looking; he's quite tall, around 6'1”, he's in his early thirties, and he's got the most beautiful dark brown eyes…
+
+> A: He sounds hot! What does he do for a living?
+
+> B: You know what, this is the best part. David is a junior investment banker at Fortune Bank, so he's got a great career path ahead of him!
+
+> A: Hold on a sec, his name is David?
+
+> B: Yeah?
+
+> A: That's my brother!
+
 **Marco:** Alright, so, interesting dialogue. Small world. 
 
 **Erica:** It is a small world. I don't know how I would feel about dating my friend's brother. 
@@ -143,6 +161,24 @@
 **Marco:** So, career path. Very good. So, now let's listen to our dialogue again and pay special attention to the language used to describe David, because when we come back, we're gonna talk about this. 
 
 **DIALOGUE SECOND TIME** (slow) 
+
+> A: Irene! I heard you were on a date last night! So, how did it go? I want all the juicy details!
+
+> B: Um… well, actually, we had a fantastic time last night. He was…amazing!
+
+> A: Okay, now you really have to fill me in. What's he like?
+
+> B: He's really good looking; he's quite tall, around 6'1”, he's in his early thirties, and he's got the most beautiful dark brown eyes…
+
+> A: He sounds hot! What does he do for a living?
+
+> B: You know what, this is the best part. David is a junior investment banker at Fortune Bank, so he's got a great career path ahead of him!
+
+> A: Hold on a sec, his name is David?
+
+> B: Yeah?
+
+> A: That's my brother!
 
 **Marco:** So, we found some really great words and phrases used to describe someone. 
 
@@ -397,6 +433,24 @@ _[NOTE: pretty is an adjective in here; not an adverb like in "pretty much"]_
 **Marco:** Okay, so, we've looked at some really good language for describing people. Now, we could listen to our dialogue a third time and I'm sure you will understand everything. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Irene! I heard you were on a date last night! So, how did it go? I want all the juicy details!
+
+> B: Um… well, actually, we had a fantastic time last night. He was…amazing!
+
+> A: Okay, now you really have to fill me in. What's he like?
+
+> B: He's really good looking; he's quite tall, around 6'1”, he's in his early thirties, and he's got the most beautiful dark brown eyes…
+
+> A: He sounds hot! What does he do for a living?
+
+> B: You know what, this is the best part. David is a junior investment banker at Fortune Bank, so he's got a great career path ahead of him!
+
+> A: Hold on a sec, his name is David?
+
+> B: Yeah?
+
+> A: That's my brother!
 
 **Marco:** Okay, so, we looked at really useful language for describing people. 
 

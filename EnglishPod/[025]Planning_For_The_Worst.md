@@ -88,6 +88,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Well, right, let's move to our next order of business, as many of you are aware, in recent weeks there has been a lot of media coverage surrounding this bird flu issue. And it's come to my attention that our company lacks any sort of bird flu contingency plan.
+
+> B: Basically, we need to come up with a clear plan; we need to outline specific actions that our company can take to maintain critical business functions in case a pandemic strikes.
+
+> A: So, what I'd like to do is: first appoint someone to look after drafting our plan; Ralph, I'd like you to head up this project.
+
+> C: Sure, no problem. What issues do you want me to consider?
+
+> B: Well, let's see, there are a few points we need to be thinking about. . . first, I'll need you to analyze our numbers and figure out what kind of financial impact an outbreak might have.
+
+> A: You'll also need to think about how we can avoid any of our employees getting infected; think of ways to reduce employee-customer contact, perhaps some IT solutions that will allow our people to work from home.
+
+> C: I guess you'll need me to forecast employee absences as well, right? And I'll think about the impact this will have on our clients. Hey, what about vaccines? Should we be thinking about getting vaccines for our employees?
+
+> A: Exactly right. So, I'll leave this to you, and we'll review the draft plan in two weeks. Okay, so, anyone want to order some KFC for lunch?
+
 **Marco:** Alright, what an ironic meeting? Uh, they're talking about the bird flu and they're going to have chicken. 
 
 **Erica:** Yes, after, uh, sneezing all over. 
@@ -257,6 +273,22 @@
 **Marco:** That's a great way of delegating a responsibility and… so, we're gonna leave you to listen to our dialogue a last time and, uh, be sure to pick up all the great vocabulary that we just talked about. 
 
 **DIALOGUE SECOND TIME** 
+
+> A: Well, right, let's move to our next order of business, as many of you are aware, in recent weeks there has been a lot of media coverage surrounding this bird flu issue. And it's come to my attention that our company lacks any sort of bird flu contingency plan.
+
+> B: Basically, we need to come up with a clear plan; we need to outline specific actions that our company can take to maintain critical business functions in case a pandemic strikes.
+
+> A: So, what I'd like to do is: first appoint someone to look after drafting our plan; Ralph, I'd like you to head up this project.
+
+> C: Sure, no problem. What issues do you want me to consider?
+
+> B: Well, let's see, there are a few points we need to be thinking about. . . first, I'll need you to analyze our numbers and figure out what kind of financial impact an outbreak might have.
+
+> A: You'll also need to think about how we can avoid any of our employees getting infected; think of ways to reduce employee-customer contact, perhaps some IT solutions that will allow our people to work from home.
+
+> C: I guess you'll need me to forecast employee absences as well, right? And I'll think about the impact this will have on our clients. Hey, what about vaccines? Should we be thinking about getting vaccines for our employees?
+
+> A: Exactly right. So, I'll leave this to you, and we'll review the draft plan in two weeks. Okay, so, anyone want to order some KFC for lunch?
 
 **Marco:** Okay, great! So, this contingency plan idea is really interesting, right? 
 

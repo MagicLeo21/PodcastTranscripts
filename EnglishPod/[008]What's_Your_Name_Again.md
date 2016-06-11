@@ -82,6 +82,24 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Nick! How's it going?
+
+> B: Oh, hey…
+
+> A: What are you doing in this neighbourhood? Do you live around here?
+
+> B: Actually, my office is right around the corner.
+
+> A: It was great to meet you last week at the conference. I really enjoyed our conversation about foreign investment.
+
+> B: Yeah, yeah, it was really interesting. You know, I'm in a bit of a hurry, but here's my card. We should definitely meet up again and continue our discussion.
+
+> A: Sure, you still have my contact details, right?
+
+> B: You know what, this is really embarrassing, but your name has just slipped my mind. Can you remind me?
+
+> A: Sure, my name is Ana Ferris. Don't worry about it; it happens to me all the time. I'm terrible with names too.
+
 **Erica:** Well, I hate it when people's phones ring when I'm watching a movie. 
 
 **Marco:** Hehe. I think everyone… gets kind of, uh, angry, but we're gonna talk about this a little bit later. Why don't we take a look now at our "language takeaway"? 
@@ -184,6 +202,24 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Nick! How's it going?
+
+> B: Oh, hey…
+
+> A: What are you doing in this neighbourhood? Do you live around here?
+
+> B: Actually, my office is right around the corner.
+
+> A: It was great to meet you last week at the conference. I really enjoyed our conversation about foreign investment.
+
+> B: Yeah, yeah, it was really interesting. You know, I'm in a bit of a hurry, but here's my card. We should definitely meet up again and continue our discussion.
+
+> A: Sure, you still have my contact details, right?
+
+> B: You know what, this is really embarrassing, but your name has just slipped my mind. Can you remind me?
+
+> A: Sure, my name is Ana Ferris. Don't worry about it; it happens to me all the time. I'm terrible with names too.
+
 **Marco:** Okay, great, now with the dialogue slower it's really understandable. 
 
 **Erica:** Yeah, I think you could catch those key words a lot better. 
@@ -233,6 +269,24 @@
 **Marco:** Hehe. Exactly. So now that we've talked about all these great things we can listen to the dialogue a third time, but it'll be at its normal speed. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Nick! How's it going?
+
+> B: Oh, hey…
+
+> A: What are you doing in this neighbourhood? Do you live around here?
+
+> B: Actually, my office is right around the corner.
+
+> A: It was great to meet you last week at the conference. I really enjoyed our conversation about foreign investment.
+
+> B: Yeah, yeah, it was really interesting. You know, I'm in a bit of a hurry, but here's my card. We should definitely meet up again and continue our discussion.
+
+> A: Sure, you still have my contact details, right?
+
+> B: You know what, this is really embarrassing, but your name has just slipped my mind. Can you remind me?
+
+> A: Sure, my name is Ana Ferris. Don't worry about it; it happens to me all the time. I'm terrible with names too.
 
 **Erica:** So, I know that in different countries there're different habits about watching movies. 
 

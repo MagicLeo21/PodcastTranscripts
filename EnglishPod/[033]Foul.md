@@ -76,6 +76,28 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Has the game started yet?
+
+> B: Yeah, about 5 minutes ago.
+
+> A: Who's winning?
+
+> B: The Bulls, of course!
+
+> A: What! That wasn't a foul! C'mon, ref!
+
+> B: Don't worry, Shaq always screws up free throws.
+
+> A: You were right! He didn't make the shot!
+
+> B: That was a great shot! A three pointer, yeah!
+
+> A: Did you see that? He traveled and the ref didn't call it!
+
+> B: This ref needs glasses. Hey ref, open your eyes! I can't believe he didn't see that!
+
+> A: Okay… end of the first quarter… Alright, I'm gonna make a beer run.
+
 **Marco:** Alright, a really common situation whenever you're watching games with the friends, right? 
 
 **Erica:** You need to get a beer. 
@@ -214,6 +236,28 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Has the game started yet?
+
+> B: Yeah, about 5 minutes ago.
+
+> A: Who's winning?
+
+> B: The Bulls, of course!
+
+> A: What! That wasn't a foul! C'mon, ref!
+
+> B: Don't worry, Shaq always screws up free throws.
+
+> A: You were right! He didn't make the shot!
+
+> B: That was a great shot! A three pointer, yeah!
+
+> A: Did you see that? He traveled and the ref didn't call it!
+
+> B: This ref needs glasses. Hey ref, open your eyes! I can't believe he didn't see that!
+
+> A: Okay… end of the first quarter… Alright, I'm gonna make a beer run.
+
 **Marco:** Alright, sports fans, so now let's take a look at "fluency builder". 
 
 **Fluency Builder** 
@@ -307,6 +351,28 @@ _[NOTE: anohter one useful phrase – "to run low on something"]_
 **Erica:** Yeah. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Has the game started yet?
+
+> B: Yeah, about 5 minutes ago.
+
+> A: Who's winning?
+
+> B: The Bulls, of course!
+
+> A: What! That wasn't a foul! C'mon, ref!
+
+> B: Don't worry, Shaq always screws up free throws.
+
+> A: You were right! He didn't make the shot!
+
+> B: That was a great shot! A three pointer, yeah!
+
+> A: Did you see that? He traveled and the ref didn't call it!
+
+> B: This ref needs glasses. Hey ref, open your eyes! I can't believe he didn't see that!
+
+> A: Okay… end of the first quarter… Alright, I'm gonna make a beer run.
 
 **Marco:** Okay, guys, I hope you enjoyed our lesson today. We'll be bringing you more sports lessons in the future. 
 

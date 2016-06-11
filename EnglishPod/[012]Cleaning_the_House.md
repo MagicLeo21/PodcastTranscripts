@@ -88,6 +88,26 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Honey, the house is such a mess! I need you to help me tidy up a bit. My boss and her husband are coming over for dinner and the house needs to be spotless!
+
+> B: I'm in the middle of something right now. I'll be there in a second.
+
+> A: This can't wait! I need your help now!
+
+> B: Alright, alright. I'm coming.
+
+> A: Ok, here's a list of chores we need to get done. I'll do the dishes and get all the groceries for tonight. You can sweep and mop the floors. Oh, and the furniture needs to be dusted.
+
+> B: You know what, I have to pick something up at the mall, so why don't you clean the floors and Ill go to the supermarket and get all the groceries.
+
+> A: Sure that's fine. Here is the list of all the things you need to get. Don't forget anything! And can you pick up a bottle of wine on your way home?
+
+> B: Hey, honey I'm back. Wow, the house looks really good!
+
+> A: Great! Can you set the table?
+
+> B: Just a sec I'm just gonna vacuum this rug real fast A: Wait! Don't turn it on…
+
 **Erica:** Oh my God, Marco, what happened there? 
 
 **Marco:** An explosion. 
@@ -250,6 +270,26 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Honey, the house is such a mess! I need you to help me tidy up a bit. My boss and her husband are coming over for dinner and the house needs to be spotless!
+
+> B: I'm in the middle of something right now. I'll be there in a second.
+
+> A: This can't wait! I need your help now!
+
+> B: Alright, alright. I'm coming.
+
+> A: Ok, here's a list of chores we need to get done. I'll do the dishes and get all the groceries for tonight. You can sweep and mop the floors. Oh, and the furniture needs to be dusted.
+
+> B: You know what, I have to pick something up at the mall, so why don't you clean the floors and Ill go to the supermarket and get all the groceries.
+
+> A: Sure that's fine. Here is the list of all the things you need to get. Don't forget anything! And can you pick up a bottle of wine on your way home?
+
+> B: Hey, honey I'm back. Wow, the house looks really good!
+
+> A: Great! Can you set the table?
+
+> B: Just a sec I'm just gonna vacuum this rug real fast A: Wait! Don't turn it on…
+
 **Marco:** Okay, great stuff. Love hearing that explosion, that vacuum just is a bomb. 
 
 **Erica:** Yeah. 
@@ -323,6 +363,26 @@
 **Erica:** And this time you'll understand a lot better. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Honey, the house is such a mess! I need you to help me tidy up a bit. My boss and her husband are coming over for dinner and the house needs to be spotless!
+
+> B: I'm in the middle of something right now. I'll be there in a second.
+
+> A: This can't wait! I need your help now!
+
+> B: Alright, alright. I'm coming.
+
+> A: Ok, here's a list of chores we need to get done. I'll do the dishes and get all the groceries for tonight. You can sweep and mop the floors. Oh, and the furniture needs to be dusted.
+
+> B: You know what, I have to pick something up at the mall, so why don't you clean the floors and Ill go to the supermarket and get all the groceries.
+
+> A: Sure that's fine. Here is the list of all the things you need to get. Don't forget anything! And can you pick up a bottle of wine on your way home?
+
+> B: Hey, honey I'm back. Wow, the house looks really good!
+
+> A: Great! Can you set the table?
+
+> B: Just a sec I'm just gonna vacuum this rug real fast A: Wait! Don't turn it on…
 
 **Erica:** Um, has… has this ever happened to you as your vacuum cleaner exploded in your house? 
 

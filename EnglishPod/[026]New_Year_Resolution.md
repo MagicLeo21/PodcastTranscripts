@@ -62,6 +62,20 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: So, did I tell you about my New Year's resolution? I've decided to go on a diet.
+
+> B: And you're going to completely transform your eating habits, right?
+
+> A: Exactly! I'm going to cut out all that junk I eat; no more chips, no more soda, no more fried food.
+
+> B: I've heard this one before.
+
+> A: But this time I'm going to stick to it. I really mean it! Trust me, Carol, I'm going to be a new man in one year's time!
+
+> B: Well, I guess we'll just have to wait and see.
+
+> A: Thanks, honey, that was a great meal. I'm stuffed. Do we have any chips left?
+
 **Erica:** So, Marco, do you think this guy will be successful in changing his eating habits? 
 
 **Marco:** Hehe. Well, I guess he'll never change, but this gives us a great opportunity to look at some great vocabulary in this lesson in "language takeaway". 
@@ -147,6 +161,20 @@
 **Marco:** And eating habits. Ah, and now we can listen to our dialogue a second time and this time like always it's gonna be slow. 
 
 **DIALOGUE SECOND TIME** (slow) 
+
+> A: So, did I tell you about my New Year's resolution? I've decided to go on a diet.
+
+> B: And you're going to completely transform your eating habits, right?
+
+> A: Exactly! I'm going to cut out all that junk I eat; no more chips, no more soda, no more fried food.
+
+> B: I've heard this one before.
+
+> A: But this time I'm going to stick to it. I really mean it! Trust me, Carol, I'm going to be a new man in one year's time!
+
+> B: Well, I guess we'll just have to wait and see.
+
+> A: Thanks, honey, that was a great meal. I'm stuffed. Do we have any chips left?
 
 **Erica:** There's a lot of great language in this dialogue, isn't there? 
 
@@ -243,6 +271,20 @@
 **Marco:** Okay, some great language, some great phrases in our dialogue today. So, why don't we listen to it a third time? And we'll come back in a little bit. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: So, did I tell you about my New Year's resolution? I've decided to go on a diet.
+
+> B: And you're going to completely transform your eating habits, right?
+
+> A: Exactly! I'm going to cut out all that junk I eat; no more chips, no more soda, no more fried food.
+
+> B: I've heard this one before.
+
+> A: But this time I'm going to stick to it. I really mean it! Trust me, Carol, I'm going to be a new man in one year's time!
+
+> B: Well, I guess we'll just have to wait and see.
+
+> A: Thanks, honey, that was a great meal. I'm stuffed. Do we have any chips left?
 
 **Marco:** Okay, so, New Year's resolutions are really common and popular thing in North America. 
 

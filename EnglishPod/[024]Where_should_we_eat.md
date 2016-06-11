@@ -92,6 +92,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Do you two have any plans for the evening?
+
+> B: We were thinking of checking out a restaurant in the neigbourhood. Do you have any suggestions?
+
+> A: I know this really nice Italian place. The food is fantastic, and the d′ecor is beautiful. I'd recommend giving it a try.
+
+> C: Actually, I'm not all that crazy about Italian food; I'm in the mood for something a bit lighter.
+
+> A: In that case, I know a great little bistro. They make a really tasty seafood platter; the fish is outstanding.
+
+> B: It sounds fantastic, but I'm allergic to seafood, so. . .
+
+> A: Okay, well, let me think. . . Oh, I know this great little place. It's just a hole in the wall, but they do the most amazing sandwiches. You gotta give them a try.
+
+> C: Ella, you took me there last time I visited, and I got food poisoning, remember?
+
 **Erica:** Well, I'm getting hungry just thinking about all of those great restaurants. 
 
 **Marco:** Yeah, some really good recommendations… 
@@ -250,6 +266,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Do you two have any plans for the evening?
+
+> B: We were thinking of checking out a restaurant in the neigbourhood. Do you have any suggestions?
+
+> A: I know this really nice Italian place. The food is fantastic, and the d′ecor is beautiful. I'd recommend giving it a try.
+
+> C: Actually, I'm not all that crazy about Italian food; I'm in the mood for something a bit lighter.
+
+> A: In that case, I know a great little bistro. They make a really tasty seafood platter; the fish is outstanding.
+
+> B: It sounds fantastic, but I'm allergic to seafood, so. . .
+
+> A: Okay, well, let me think. . . Oh, I know this great little place. It's just a hole in the wall, but they do the most amazing sandwiches. You gotta give them a try.
+
+> C: Ella, you took me there last time I visited, and I got food poisoning, remember?
+
 **Marco:** Okay, some really great and useful phrases there and I know you wanna talk about specifically some of these phrases. 
 
 **Erica:** Yes! Today's lesson is all about making recommendations, right? 
@@ -341,6 +373,22 @@
 **Erica:** Well, why don't we listen to the dialogue a third time? And you'll hear some of these contractions in the dialogue. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Do you two have any plans for the evening?
+
+> B: We were thinking of checking out a restaurant in the neigbourhood. Do you have any suggestions?
+
+> A: I know this really nice Italian place. The food is fantastic, and the d′ecor is beautiful. I'd recommend giving it a try.
+
+> C: Actually, I'm not all that crazy about Italian food; I'm in the mood for something a bit lighter.
+
+> A: In that case, I know a great little bistro. They make a really tasty seafood platter; the fish is outstanding.
+
+> B: It sounds fantastic, but I'm allergic to seafood, so. . .
+
+> A: Okay, well, let me think. . . Oh, I know this great little place. It's just a hole in the wall, but they do the most amazing sandwiches. You gotta give them a try.
+
+> C: Ella, you took me there last time I visited, and I got food poisoning, remember?
 
 **Marco:** Okay, great dialogue and Erica, I know that you have some food poisoning stories for us. 
 

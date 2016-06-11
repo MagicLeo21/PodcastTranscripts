@@ -22,6 +22,29 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: I can't believe it took us two hours to get here. The traffic in New York is unbelievable.
+
+> B: Yeah, but just relax honey, we're here and we're going on vacation. In a few hours we'll be in Hawaii, and you'll be on the golf course.
+
+> A: Oh no! Look at that line! It must be a mile long!
+There's no way I'm waiting for another two hours.
+
+> B: Honey… don't…
+
+> C: Hey man, the end of the line is over there.
+
+> A: Yeah…
+
+> C: No seriously, I was here first, and you can't cut in line like this.
+
+> A: Says who?
+
+> C: I do!
+
+> A: So sue me!
+
+> C: Alright…that's it….
+
 **Amira:** Whoa, I think there's punching. 
 
 **Marco:** Yeah. Yeah, I guess this guy was as just a crazy… I don't know, impatient man, ha? 
@@ -141,6 +164,29 @@
 **Amira:** Right. Well, it actually means like taking someone to court and asking for money, because someone has harmed you in a way. I think that we should listen to the dialogue one more time and try to figure out why he used that phrase and if he's really going to take him to court. 
 
 **DIALOGUE SECOND TIME** 
+
+> A: I can't believe it took us two hours to get here. The traffic in New York is unbelievable.
+
+> B: Yeah, but just relax honey, we're here and we're going on vacation. In a few hours we'll be in Hawaii, and you'll be on the golf course.
+
+> A: Oh no! Look at that line! It must be a mile long!
+There's no way I'm waiting for another two hours.
+
+> B: Honey… don't…
+
+> C: Hey man, the end of the line is over there.
+
+> A: Yeah…
+
+> C: No seriously, I was here first, and you can't cut in line like this.
+
+> A: Says who?
+
+> C: I do!
+
+> A: So sue me!
+
+> C: Alright…that's it….
 
 **Marco:** Alright, we're back. Now, this guy when he says "Sue me" he's just being rude, I mean he's just being, uh, kind of… 
 

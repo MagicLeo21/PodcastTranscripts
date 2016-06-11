@@ -88,6 +88,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Really, gentlemen, you can't take me to jail! Don't you know who I am? Kris Kringle, you know, Papa Noel, Pere Noel, Babbo Natale, sheng dan lao ren!
+
+> B: Yeah, Yeah, we've heard that one before, haven't we Joe?
+
+> C: Yeah, last week we booked this guy who claimed to be the tooth fairy! Can you believe that?
+
+> A: It's Christmas Eve and I have all these Presents to deliver! Where is your Christmas spirit? What will happen when all the children wake up tomorrow and don't find any gifts in their stockings?
+
+> B: Sorry buddy, you were parked in a no-parking zone, you were speeding, and you have no ID!
+
+> C: Besides that, even if we let you go now, your sleigh has been impounded and those reindeer were taken to the city zoo.
+
+> A: What! This is unbelievable! What's this world coming to? Christmas is ruined!
+
+> C: What's that up ahead? It looks like… elves!! Elves!! Whoa, they're shooting candy canes! Mayday, Mayday, we are under heavy attack! We need backup!
+
 **Marco:** Okay, so, Santa has escaped from the police car, hey? 
 
 **Erica:** Thank God! 
@@ -284,6 +300,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Really, gentlemen, you can't take me to jail! Don't you know who I am? Kris Kringle, you know, Papa Noel, Pere Noel, Babbo Natale, sheng dan lao ren!
+
+> B: Yeah, Yeah, we've heard that one before, haven't we Joe?
+
+> C: Yeah, last week we booked this guy who claimed to be the tooth fairy! Can you believe that?
+
+> A: It's Christmas Eve and I have all these Presents to deliver! Where is your Christmas spirit? What will happen when all the children wake up tomorrow and don't find any gifts in their stockings?
+
+> B: Sorry buddy, you were parked in a no-parking zone, you were speeding, and you have no ID!
+
+> C: Besides that, even if we let you go now, your sleigh has been impounded and those reindeer were taken to the city zoo.
+
+> A: What! This is unbelievable! What's this world coming to? Christmas is ruined!
+
+> C: What's that up ahead? It looks like… elves!! Elves!! Whoa, they're shooting candy canes! Mayday, Mayday, we are under heavy attack! We need backup!
+
 **Marco:** Okay, so, without the sound effects and without any noise I think it's much more clear now, right? 
 
 **Erica:** A little less dramatic. 
@@ -381,6 +413,22 @@
 **Marco:** Really good phrases and with this we can listen to our dialogue a third time. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Really, gentlemen, you can't take me to jail! Don't you know who I am? Kris Kringle, you know, Papa Noel, Pere Noel, Babbo Natale, sheng dan lao ren!
+
+> B: Yeah, Yeah, we've heard that one before, haven't we Joe?
+
+> C: Yeah, last week we booked this guy who claimed to be the tooth fairy! Can you believe that?
+
+> A: It's Christmas Eve and I have all these Presents to deliver! Where is your Christmas spirit? What will happen when all the children wake up tomorrow and don't find any gifts in their stockings?
+
+> B: Sorry buddy, you were parked in a no-parking zone, you were speeding, and you have no ID!
+
+> C: Besides that, even if we let you go now, your sleigh has been impounded and those reindeer were taken to the city zoo.
+
+> A: What! This is unbelievable! What's this world coming to? Christmas is ruined!
+
+> C: What's that up ahead? It looks like… elves!! Elves!! Whoa, they're shooting candy canes! Mayday, Mayday, we are under heavy attack! We need backup!
 
 **Erica:** So, Marco, the police mentioned something about the Tooth Fairy. 
 

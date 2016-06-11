@@ -20,11 +20,13 @@
 
 > B: I'd like to check in please. I have a reservation under the name Anthony Roberts.
 
-> A: All right R.O.B.E.R.T.S… Oh, Mr. Roberts we've been expecting you& and here is your keycard to the presidential suite.
+> A: All right R.O.B.E.R.T.S… Oh, Mr. Roberts we've been expecting you… and here is your keycard to the presidential suite.
 
 > B: But there must be some mistake; my reservation was for a standard room.
 
-> A: Are you sure? Let me double check .B: Yeah&Here, this is my confirmation number.
+> A: Are you sure? Let me double check.
+
+> B: Yeah… Here, this is my confirmation number.
 
 > A: You're right Mr. Roberts, there seems to be a mix-up, unfortunately we're overbooked at the moment .
 
@@ -142,13 +144,13 @@
 
 > B: I'd like to check in please. I have a reservation under the name Anthony Roberts.
 
-> A: All right R.O.B.E.R.T.S… Oh, Mr. Roberts we've been expecting you and here is your keycard to the presidential suite.
+> A: All right R.O.B.E.R.T.S… Oh, Mr. Roberts we've been expecting you… and here is your keycard to the presidential suite.
 
 > B: But there must be some mistake; my reservation was for a standard room.
 
 > A: Are you sure? Let me double check.
 
-> B: Yeah&Here, this is my confirmation number.
+> B: Yeah… Here, this is my confirmation number.
 
 > A: You're right Mr. Roberts, there seems to be a mix-up, unfortunately we're overbooked at the moment .
 

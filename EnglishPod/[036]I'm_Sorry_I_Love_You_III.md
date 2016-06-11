@@ -52,6 +52,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: Steven! Where have you been? I've been trying to get a hold of you for hours!
+
+> B: I… um… there was an emergency at work, so…
+
+> A: I was waiting for you in the restaurant for three hours! And you didn't even have the decency to call me! Do you have any idea how embarrassed I was?
+
+> B: Honey, I promise this won't happen again, it's just that I…
+
+> A: Yeah, right. I've heard it all before. I'm not going to take any more of your empty promises. This is the 5th time you've stood me up in two weeks! You need to get your priorities straight. I'm tired of you putting your job first all the time!
+
+> B: Come on, Veronica, that's not fair. I do care about you a lot, you know that. I tried to …
+
+> A: You know what? Maybe we should just take a break. I need some time to think about where this relationship is heading.
+
+> B: But…Veronica, would you just listen to me? There was a fire alarm at my office building today and I was stuck…
+
 **Marco:** Okay, so, a little bit of trouble in the relationship. 
 
 **Erica:** Yeah, that's too bad. 
@@ -148,6 +164,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: Steven! Where have you been? I've been trying to get a hold of you for hours!
+
+> B: I… um… there was an emergency at work, so…
+
+> A: I was waiting for you in the restaurant for three hours! And you didn't even have the decency to call me! Do you have any idea how embarrassed I was?
+
+> B: Honey, I promise this won't happen again, it's just that I…
+
+> A: Yeah, right. I've heard it all before. I'm not going to take any more of your empty promises. This is the 5th time you've stood me up in two weeks! You need to get your priorities straight. I'm tired of you putting your job first all the time!
+
+> B: Come on, Veronica, that's not fair. I do care about you a lot, you know that. I tried to …
+
+> A: You know what? Maybe we should just take a break. I need some time to think about where this relationship is heading.
+
+> B: But…Veronica, would you just listen to me? There was a fire alarm at my office building today and I was stuck…
+
 **Marco:** Okay, now, we saw some interesting phrases in the dialogue. 
 
 **Erica:** Yeah, we saw some great phrases, uh, that people use when they're getting in a fight. 
@@ -229,6 +261,22 @@
 **Marco:** Yeah. Hehe. Okay, so, let's listen to our dialogue again and then we'll come back and talk some more. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: Steven! Where have you been? I've been trying to get a hold of you for hours!
+
+> B: I… um… there was an emergency at work, so…
+
+> A: I was waiting for you in the restaurant for three hours! And you didn't even have the decency to call me! Do you have any idea how embarrassed I was?
+
+> B: Honey, I promise this won't happen again, it's just that I…
+
+> A: Yeah, right. I've heard it all before. I'm not going to take any more of your empty promises. This is the 5th time you've stood me up in two weeks! You need to get your priorities straight. I'm tired of you putting your job first all the time!
+
+> B: Come on, Veronica, that's not fair. I do care about you a lot, you know that. I tried to …
+
+> A: You know what? Maybe we should just take a break. I need some time to think about where this relationship is heading.
+
+> B: But…Veronica, would you just listen to me? There was a fire alarm at my office building today and I was stuck…
 
 **Erica:** So, Marco, this phrase to take a break really reminds me of a Friends episode. 
 

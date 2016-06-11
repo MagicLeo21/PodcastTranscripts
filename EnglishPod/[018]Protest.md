@@ -62,6 +62,20 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: This is Action 5 News reporter Sarah O'Connell reporting live from Washington, D. C. where a protest has broken out. Thousands of angry citizens are protesting against the proposed bailout of the auto manufacturing industry! Sir, sir, Sarah O'Connell, Action 5 news. Can you tell us what's happening?
+
+> B: Yeah, yeah, we're here because we feel this is an injustice! The financial irresponsibility of big business has to stop! We're there to show the government that we don't like the way that they're spending our tax dollars!
+
+> A: Sir but what exactly is making everyone so angry?
+
+> B: It's an absolute outrage, Sarah, the US government wants to give 25 billion dollars of taxpayers' money to the auto industry. These are companies that have been mismanaged and are now nearly bankrupt.
+
+> A: I see. But, many supporters of the bailout argue that it could help save the jobs of millions of hardworking Americans.
+
+> B: That maybe true, and I for one don't want to see anyone lose their job, but how can these CEOs ask for a bailout when they're making millions of dollars? And then, they have the nerve to fly to Washington in private jets! This costs hundreds of thousands of dollars! And they're asking for money! That is just not right!
+
+> A: Good point. This is Sarah O'Connell reporting live from Washington D. C., back to you, Tom.
+
 **Marco:** Wow, these people are really angry. 
 
 **Erica:** I think they're furious. 
@@ -239,6 +253,20 @@ _[NOTE: it sounds like quickly + quicker; it's kind of a casual but a bit contro
 **Marco:** Exactly. So, remember the difference between present perfect and simple past. Now, if you want to know more about these tenses: present perfect and simple past, be sure to go to our website at englishpod.com; in the grammar section you can find some more great examples and a really clear explanation on how these tenses are formed. But now we are ready to listen to our dialogue a second time. 
 
 **DIALOGUE SECOND TIME** 
+
+> A: This is Action 5 News reporter Sarah O'Connell reporting live from Washington, D. C. where a protest has broken out. Thousands of angry citizens are protesting against the proposed bailout of the auto manufacturing industry! Sir, sir, Sarah O'Connell, Action 5 news. Can you tell us what's happening?
+
+> B: Yeah, yeah, we're here because we feel this is an injustice! The financial irresponsibility of big business has to stop! We're there to show the government that we don't like the way that they're spending our tax dollars!
+
+> A: Sir but what exactly is making everyone so angry?
+
+> B: It's an absolute outrage, Sarah, the US government wants to give 25 billion dollars of taxpayers' money to the auto industry. These are companies that have been mismanaged and are now nearly bankrupt.
+
+> A: I see. But, many supporters of the bailout argue that it could help save the jobs of millions of hardworking Americans.
+
+> B: That maybe true, and I for one don't want to see anyone lose their job, but how can these CEOs ask for a bailout when they're making millions of dollars? And then, they have the nerve to fly to Washington in private jets! This costs hundreds of thousands of dollars! And they're asking for money! That is just not right!
+
+> A: Good point. This is Sarah O'Connell reporting live from Washington D. C., back to you, Tom.
 
 **Marco:** Okay, Erica, so, what do you think about this situation? 
 

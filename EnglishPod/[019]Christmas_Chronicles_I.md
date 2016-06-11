@@ -58,6 +58,22 @@
 
 **DIALOGUE FIRST TIME** 
 
+> A: I hate working on Christmas Eve! Whoa! Get a load of this guy! Come in central, I think we've got ourselves a situation here.
+
+> B: License and registration please. Have you been drinking tonight, sir?
+
+> A: I had one or two glasses of eggnog, but nothing else.
+
+> B: Step out of the vehicle, please. Sir, what do you have in the back?
+
+> A: Just a few Christmas gifts, 'tis the season, after all!
+
+> B: Don't take that tone with me. Do you have an invoice for these items?
+
+> A: Umm…no…I make these in my workshop in the North Pole!
+
+> B: You are under arrest, sir. You have the right to remain silent. You better not pout, you better not cry. Anything you say can and will be used against you. You have the right to an attorney; if you cannot afford one, the state will appoint A: You can't take me to jail! What about my sleigh? It's Christmas Eve! I have Presents to deliver! Rudolph! Prancer! Dancer! Get help!
+
 **Erica:** Well, I did not see that one coming. 
 
 **Marco:** Yeah, that was interesting. Santa Clause is being taken to jail. 
@@ -210,6 +226,22 @@
 
 **DIALOGUE SECOND TIME** (slow) 
 
+> A: I hate working on Christmas Eve! Whoa! Get a load of this guy! Come in central, I think we've got ourselves a situation here.
+
+> B: License and registration please. Have you been drinking tonight, sir?
+
+> A: I had one or two glasses of eggnog, but nothing else.
+
+> B: Step out of the vehicle, please. Sir, what do you have in the back?
+
+> A: Just a few Christmas gifts, 'tis the season, after all!
+
+> B: Don't take that tone with me. Do you have an invoice for these items?
+
+> A: Umm…no…I make these in my workshop in the North Pole!
+
+> B: You are under arrest, sir. You have the right to remain silent. You better not pout, you better not cry. Anything you say can and will be used against you. You have the right to an attorney; if you cannot afford one, the state will appoint A: You can't take me to jail! What about my sleigh? It's Christmas Eve! I have Presents to deliver! Rudolph! Prancer! Dancer! Get help!
+
 **Marco:** Okay, so, we noticed some really great words and phrases, and with this, now we can start with some "fluency builder". 
 
 **Fluency Builder** 
@@ -257,6 +289,22 @@
 **Marco:** Really useful phrases, great stuff, so, now we can listen to our dialogue a final time and this time we can understand everything that's in it. 
 
 **DIALOGUE THIRD TIME** 
+
+> A: I hate working on Christmas Eve! Whoa! Get a load of this guy! Come in central, I think we've got ourselves a situation here.
+
+> B: License and registration please. Have you been drinking tonight, sir?
+
+> A: I had one or two glasses of eggnog, but nothing else.
+
+> B: Step out of the vehicle, please. Sir, what do you have in the back?
+
+> A: Just a few Christmas gifts, 'tis the season, after all!
+
+> B: Don't take that tone with me. Do you have an invoice for these items?
+
+> A: Umm…no…I make these in my workshop in the North Pole!
+
+> B: You are under arrest, sir. You have the right to remain silent. You better not pout, you better not cry. Anything you say can and will be used against you. You have the right to an attorney; if you cannot afford one, the state will appoint A: You can't take me to jail! What about my sleigh? It's Christmas Eve! I have Presents to deliver! Rudolph! Prancer! Dancer! Get help!
 
 **Erica:** So, when the police officer was arresting Santa Clause, uh, he said something a little bit strange, hey? 
 
